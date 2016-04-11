@@ -926,245 +926,244 @@ lelki erővel győzze le a kéjként ismert telhetetlen
 ellenséget.
 
 
-
 ### Negyedik fejezet
 #### Transzcendentális tudás
 
 ##### 1. vers
-Az Istenség Legfelsőbb Személyisége szólt:
-A yoga e maradandó tudományát Én tanítottam a napistennek,
-Vivasvannak, aki később Manut, az emberiség atyját, Manu
+Az Istenség Legfelsőbb Személyisége szólt:  
+A yoga e maradandó tudományát Én tanítottam a napistennek,  
+Vivasvannak, aki később Manut, az emberiség atyját, Manu  
 pedig Iksvakut oktatta erről.
 
 ##### 2. vers
-Óh, Ellenség Fenyítője, a szent királyok ehhez a legfelsőbb
-tudományhoz ily módon, a tanítványi láncon keresztül
-jutottak, így értették meg azt. Idővel azonban megtört e
+Óh, Ellenség Fenyítője, a szent királyok ehhez a legfelsőbb  
+tudományhoz ily módon, a tanítványi láncon keresztül  
+jutottak, így értették meg azt. Idővel azonban megtört e  
 lánc, ezért tűnik az eredeti tudomány elveszettnek.
 
 ##### 3. vers
-A Legfelsőbbel való kapcsolat ugyanazon ősi tudományát
-mondom el ma neked, s mert az Én bhaktám és barátom vagy,
+A Legfelsőbbel való kapcsolat ugyanazon ősi tudományát  
+mondom el ma neked, s mert az Én bhaktám és barátom vagy,  
 megértheted e tudomány transzcendentális rejtélyét.
 
 ##### 4. vers
-Arjuna így kérdezett:
-Hiszen Te jóval a napisten, Vivasvan után születtél. Hogyan
-értsem hát, hogy a kezdetben őt oktattad ki erről a
+Arjuna így kérdezett:  
+Hiszen Te jóval a napisten, Vivasvan után születtél. Hogyan  
+értsem hát, hogy a kezdetben őt oktattad ki erről a  
 tudományról?
 
 ##### 5. vers
-A Magasztos Úr így válaszolt:
-Sok-sok születés van Énmögöttem és mögötted. Én képes vagyok
-mindegyikre emlékezni, de te nem, óh, Arjuna, ellenség
+A Magasztos Úr így válaszolt:  
+Sok-sok születés van Énmögöttem és mögötted. Én képes vagyok  
+mindegyikre emlékezni, de te nem, óh, Arjuna, ellenség  
 fenyítője.
 
 ##### 6. vers
-Noha Én megszületetlen vagyok, és transzcendentális testem
-sohasem pusztul el, s habár Én vagyok az összes lény Ura,
-mégis megjelenek minden korszakban eredeti,
+Noha Én megszületetlen vagyok, és transzcendentális testem  
+sohasem pusztul el, s habár Én vagyok az összes lény Ura,  
+mégis megjelenek minden korszakban eredeti,  
 transzcendentális formámban.
 
 ##### 7. vers
-Óh, Bharata leszármazottja, bármikor és bárhol is legyen a
-vallás gyakorlása hanyatlásban, és fölényes túlsúlyban a
+Óh, Bharata leszármazottja, bármikor és bárhol is legyen a  
+vallás gyakorlása hanyatlásban, és fölényes túlsúlyban a  
 vallástalanság, akkor alászállok Én Magam.
 
 ##### 8. vers
-A jámborok felszabadítása, a gonoszok megsemmisítése,
-valamint a vallás elveinek visszaállítása végett korszakról-
+A jámborok felszabadítása, a gonoszok megsemmisítése,  
+valamint a vallás elveinek visszaállítása végett korszakról-  
 korszakra megjelenek Én.
 
 ##### 9. vers
-Óh, Arjuna, aki ismeri megjelenésem és cselekedeteim
-transzcendentális természetét, az teste elhagyása után nem
-születik meg újra ebben az anyagi világban, hanem eléri az
+Óh, Arjuna, aki ismeri megjelenésem és cselekedeteim  
+transzcendentális természetét, az teste elhagyása után nem  
+születik meg újra ebben az anyagi világban, hanem eléri az  
 Én örök tartózkodási helyemet.
 
 ##### 10. vers
-Megszabadulván a ragaszkodástól, a félelemtől és a haragtól,
-teljesen elmélyülvén Énbennem, oltalmat Énnálam keresve, már
-sokan megtisztultak a múltban a Rólam szóló tudás által, s
-így mind elérték az Irántam érzett transzcendentális
+Megszabadulván a ragaszkodástól, a félelemtől és a haragtól,  
+teljesen elmélyülvén Énbennem, oltalmat Énnálam keresve, már  
+sokan megtisztultak a múltban a Rólam szóló tudás által, s  
+így mind elérték az Irántam érzett transzcendentális  
 szeretetet.
 
 ##### 11. vers
-Óh, Prtha fia, mindenkit aszerint jutalmazok meg, amilyen
-mértékben átadja magát Énnekem. Mindenki, minden tekintetben
+Óh, Prtha fia, mindenkit aszerint jutalmazok meg, amilyen  
+mértékben átadja magát Énnekem. Mindenki, minden tekintetben  
 az Én utamat követi.
 
 ##### 12. vers
-Ebben a világban az emberek a gyümölcsöző tettekben kívánnak
-sikert, s ezért imádják a félisteneket. Természetesen az
-ilyen munka által nagyon hamar érhetnek el eredményt itt a
+Ebben a világban az emberek a gyümölcsöző tettekben kívánnak  
+sikert, s ezért imádják a félisteneket. Természetesen az  
+ilyen munka által nagyon hamar érhetnek el eredményt itt a  
 földön.
 
 ##### 13. vers
-Az emberi társadalom négy osztályát Én teremtettem az anyagi
-természet három kötőereje és a hozzájuk illő munka szerint.
-Tudd meg, habár Én vagyok e rendszer alkotója, Én mégis nem-
+Az emberi társadalom négy osztályát Én teremtettem az anyagi  
+természet három kötőereje és a hozzájuk illő munka szerint.  
+Tudd meg, habár Én vagyok e rendszer alkotója, Én mégis nem-  
 cselekvő és változatlan vagyok!
 
 ##### 14. vers
-Nincs tett, ami Engem befolyásolna, és a munka gyümölcséért
-sem törekszem Én. Aki megérti ezt a Rólam szóló igazságot,
+Nincs tett, ami Engem befolyásolna, és a munka gyümölcséért  
+sem törekszem Én. Aki megérti ezt a Rólam szóló igazságot,  
 az szintén nem bonyolódik bele a munka visszahatásaiba.
 
 ##### 15. vers
-A régmúlt időkben az összes felszabadult lélek ezzel az
-értelemmel cselekedett, így érték el a felszabadulást. Ezért
-az ősök mintájára, ebben az Isteni tudatban végezd te is
+A régmúlt időkben az összes felszabadult lélek ezzel az  
+értelemmel cselekedett, így érték el a felszabadulást. Ezért  
+az ősök mintájára, ebben az Isteni tudatban végezd te is  
 kötelességedet.
 
 ##### 16. vers
-Még az értelmesek is zavarba jönnek, amikor megpróbálják
-meghatározni, hogy mi a cselekvés és mi a tétlenség. Én most
-megmagyarázom neked, hogy ennek ismeretében megszabadulhass
+Még az értelmesek is zavarba jönnek, amikor megpróbálják  
+meghatározni, hogy mi a cselekvés és mi a tétlenség. Én most  
+megmagyarázom neked, hogy ennek ismeretében megszabadulhass  
 minden bűntől.
 
 ##### 17. vers
-Nagyon nehéz megérteni a cselekvés szövevényeit. Ezért jól
-kell tudni, hogy mi a cselekedet, a tiltott cselekedet és a
+Nagyon nehéz megérteni a cselekvés szövevényeit. Ezért jól  
+kell tudni, hogy mi a cselekedet, a tiltott cselekedet és a  
 tétlenség.
 
 ##### 18. vers
-Aki a cselekvésben tétlenséget és a tétlenségben cselekvést
-lát, az értelmes az emberek között, s az ő helyzete még
+Aki a cselekvésben tétlenséget és a tétlenségben cselekvést  
+lát, az értelmes az emberek között, s az ő helyzete még  
 akkor is transzcendentális, ha mindenféle tettet végez.
 
 ##### 19. vers
-Szilárdan megalapozott tudással az rendelkezik, akinek
-minden tette mentes az érzékkielégítés utáni vágytól. A
-bölcsek azt tartják róla, hogy tökéletes tudása van, melynek
+Szilárdan megalapozott tudással az rendelkezik, akinek  
+minden tette mentes az érzékkielégítés utáni vágytól. A  
+bölcsek azt tartják róla, hogy tökéletes tudása van, melynek  
 tüze felégette gyümölcsöző tetteit.
 
 ##### 20. vers
-Feladván minden ragaszkodást, melyek tettei gyümölcseihez
-fűzik, bár mindenféle munkát végez, mégis elégedett mindig,
+Feladván minden ragaszkodást, melyek tettei gyümölcseihez  
+fűzik, bár mindenféle munkát végez, mégis elégedett mindig,  
 független, és mentes az anyagi cselekedetektől.
 
 ##### 21. vers
-Az ilyen értelmes ember feladja a tulajdonaihoz fűződő
-összes birtoklásérzetét, és elméjén valamint értelmén
-uralkodva csupán a minimális életszükségletért cselekszik.
-Aki ily módon dolgozik, arra nem hatnak a bűnös
+Az ilyen értelmes ember feladja a tulajdonaihoz fűződő  
+összes birtoklásérzetét, és elméjén valamint értelmén  
+uralkodva csupán a minimális életszükségletért cselekszik.  
+Aki ily módon dolgozik, arra nem hatnak a bűnös  
 visszahatások.
 
 ##### 22. vers
-Sohasem kötik tettei az olyan cselekvőt, aki elégedett a
-számára önként kínálkozó nyereséggel, megszabadult az
-ellentétpároktól, nem irigy, és rendíthetetlen a sikerben és
+Sohasem kötik tettei az olyan cselekvőt, aki elégedett a  
+számára önként kínálkozó nyereséggel, megszabadult az  
+ellentétpároktól, nem irigy, és rendíthetetlen a sikerben és  
 kudarcban egyaránt.
 
 ##### 23. vers
-Az anyagi természet kötőerőitől független, teljesen a
-transzcendentális tudásban élő ember munkája egészében a
+Az anyagi természet kötőerőitől független, teljesen a  
+transzcendentális tudásban élő ember munkája egészében a  
 transzcendensbe olvad.
 
 ##### 24. vers
-A Krsna-tudatban teljesen elmélyedő személy biztosan eljut a
-lelki birodalomba, mert teljes mértékben hozzájárult a lelki
-tettekhez, melyekben a teljesítés abszolút, és amit
+A Krsna-tudatban teljesen elmélyedő személy biztosan eljut a  
+lelki birodalomba, mert teljes mértékben hozzájárult a lelki  
+tettekhez, melyekben a teljesítés abszolút, és amit  
 feláldoznak, az ugyanolyan lelki természetű.
 
 ##### 25. vers
-Némely yogi a félisteneket imádja tökéletesen, különféle
-áldozatokat ajánlva fel nekik. Mások a Legfelsőbb Brahman
+Némely yogi a félisteneket imádja tökéletesen, különféle  
+áldozatokat ajánlva fel nekik. Mások a Legfelsőbb Brahman  
 tüzébe ajánlják áldozataikat.
 
 ##### 26. vers
-Némelyek hallásukat és az érzékeket áldozzák a fegyelmezett
-elme tüzébe, mások a hangot és az érzékek egyéb tárgyait
+Némelyek hallásukat és az érzékeket áldozzák a fegyelmezett  
+elme tüzébe, mások a hangot és az érzékek egyéb tárgyait  
 öntik az áldozati lángok közé.
 
 ##### 27. vers
-Akiket az elme és az érzékek szabályozására irányuló
-önmegvalósítás érdekel, azok az összes érzékek működését,
-valamint az életerőt (lélegzést) ajánlják áldozatként a
+Akiket az elme és az érzékek szabályozására irányuló  
+önmegvalósítás érdekel, azok az összes érzékek működését,  
+valamint az életerőt (lélegzést) ajánlják áldozatként a  
 fegyelmezett elme tüzébe.
 
 ##### 28. vers
-Vannak mások, akik azután, hogy anyagi javaikat a szigorú
-önfegyelmezésbe áldozván megvilágosultak, szigorú
-fogadalmakat tesznek, és a nyolcfokú misztika yogáját
-gyakorolják; míg mások a Vedákat tanulmányozzák, hogy
+Vannak mások, akik azután, hogy anyagi javaikat a szigorú  
+önfegyelmezésbe áldozván megvilágosultak, szigorú  
+fogadalmakat tesznek, és a nyolcfokú misztika yogáját  
+gyakorolják; míg mások a Vedákat tanulmányozzák, hogy  
 előrehaladhassanak a transzcendentális tudásban.
 
 ##### 29. vers
-Ismét mások a lélegzetszabályozással akarják elérni a transz
-állapotát, s ennek érdekében a következőket gyakorolják:
-megállítják a kilégzést a belégzésben, a belégzést pedig a
-kilégzésben, míg végül is a lélegzet teljes leállításával
-transzba nem merülnek. Némelyikük az étkezés csökkentésével
+Ismét mások a lélegzetszabályozással akarják elérni a transz  
+állapotát, s ennek érdekében a következőket gyakorolják:  
+megállítják a kilégzést a belégzésben, a belégzést pedig a  
+kilégzésben, míg végül is a lélegzet teljes leállításával  
+transzba nem merülnek. Némelyikük az étkezés csökkentésével  
 kilélegzést áldoz a kilélegzésbe.
 
 ##### 30. vers
-Ezek a személyek, akik ismerik az áldozat célját, mind
-megtisztulnak a bűnös visszahatásoktól, majd az ilyen
-áldozati maradék nektárának megízlelése után a legfelsőbb,
+Ezek a személyek, akik ismerik az áldozat célját, mind  
+megtisztulnak a bűnös visszahatásoktól, majd az ilyen  
+áldozati maradék nektárának megízlelése után a legfelsőbb,  
 örök atmoszférába jutnak.
 
 ##### 31. vers
-Óh, Kuru dinasztia legjobbja, áldozat nélkül sohasem élhet
-az ember boldogan ezen a bolygón vagy ebben az életben, még
+Óh, Kuru dinasztia legjobbja, áldozat nélkül sohasem élhet  
+az ember boldogan ezen a bolygón vagy ebben az életben, még  
 kevésbé a következőben.
 
 ##### 32. vers
-A Vedák helyeslik a különféle áldozatokat, melyek mind
-másfajta munkából születnek. Ha így ismered őket,
+A Vedák helyeslik a különféle áldozatokat, melyek mind  
+másfajta munkából születnek. Ha így ismered őket,  
 felszabadulsz.
 
 ##### 33. vers
-Óh, Ellenség Fenyítője, a tudással végzett áldozat többet ér
-az anyagi javak áldozatánál. Óh, Prtha fia, a munka
-felajánlása végezetül a transzcendentális tudásban éri el
+Óh, Ellenség Fenyítője, a tudással végzett áldozat többet ér  
+az anyagi javak áldozatánál. Óh, Prtha fia, a munka  
+felajánlása végezetül a transzcendentális tudásban éri el  
 tetőfokát.
 
 ##### 34. vers
-Fordulj egy lelki tanítómesterhez, úgy próbáld megérteni az
-igazságot! Tudakozódj alázatosan, és szolgáld őt! Az
-önmegvalósult lélek képes tudásban részesíteni téged, mert ő
+Fordulj egy lelki tanítómesterhez, úgy próbáld megérteni az  
+igazságot! Tudakozódj alázatosan, és szolgáld őt! Az  
+önmegvalósult lélek képes tudásban részesíteni téged, mert ő  
 már látta az igazságot.
 
 ##### 35. vers
-Óh, Pandu fia, ha megismerted az igazságot, nem tévedsz meg
-többé, s tudni fogod, hogy minden élőlény az Én részem,
+Óh, Pandu fia, ha megismerted az igazságot, nem tévedsz meg  
+többé, s tudni fogod, hogy minden élőlény az Én részem,  
 Bennem van mind - az Enyémek ők.
 
 ##### 36. vers
-Még ha a bűnösök legbűnösebbjének is tekintenek, képes
-leszel átszelni a szenvedések óceánját, ha helyet foglaltál
+Még ha a bűnösök legbűnösebbjének is tekintenek, képes  
+leszel átszelni a szenvedések óceánját, ha helyet foglaltál  
 a transzcendentális tudás hajóján.
 
 ##### 37. vers
-Amint a lobogó lángok közt hamuvá lesz a fa, úgy hamvasztja
+Amint a lobogó lángok közt hamuvá lesz a fa, úgy hamvasztja  
 el a tudás tüze az anyagi cselekedetek összes visszahatását.
 
 ##### 38. vers
-Ebben a világban semmi sem olyan tiszta és magasztos, mint a
-transzcendentális tudás. Ez minden misztika érett gyümölcse,
+Ebben a világban semmi sem olyan tiszta és magasztos, mint a  
+transzcendentális tudás. Ez minden misztika érett gyümölcse,  
 s ha valaki megízlelte, az idővel belül örvend az önvalónak.
 
 ##### 39. vers
-A transzcendentális tudásban elmélyedt és az érzékein
-uralkodó, nagyhitű ember hamarosan eléri a legfelsőbb lelki
+A transzcendentális tudásban elmélyedt és az érzékein  
+uralkodó, nagyhitű ember hamarosan eléri a legfelsőbb lelki  
 békét.
 
 ##### 40. vers
-De a kinyilatkoztatott Írásokban kételkedő tudatlan és
-hitetlen személy nem éri el az Isten-tudatot, hanem
-visszaesik. A kételkedő lélek nem boldog e világban, sem
+De a kinyilatkoztatott Írásokban kételkedő tudatlan és  
+hitetlen személy nem éri el az Isten-tudatot, hanem  
+visszaesik. A kételkedő lélek nem boldog e világban, sem  
 ebben az életben, sem pedig a következőben.
 
 ##### 41. vers
-Óh, Bőség Meghódítója, aki lemondott munkája gyümölcséről,
-kinek kétségeit szétoszlatta a transzcendentális tudás, és
-aki szilárdan horgonyzik az önvalóban, azt nem kötik a
+Óh, Bőség Meghódítója, aki lemondott munkája gyümölcséről,  
+kinek kétségeit szétoszlatta a transzcendentális tudás, és  
+aki szilárdan horgonyzik az önvalóban, azt nem kötik a  
 tettek.
 
 ##### 42. vers
-Ezért a tudás kardjával hasítsd szét a kétségeket, melyek
-tudatlanságból támadtak szívedben. Óh, Bharata, állj fel a
+Ezért a tudás kardjával hasítsd szét a kétségeket, melyek  
+tudatlanságból támadtak szívedben. Óh, Bharata, állj fel a  
 yogával felfegyverkezve, és harcolj!
 
 
