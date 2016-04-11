@@ -2085,211 +2085,211 @@ elmélyüléssel biztosan eljutsz Hozzám.
 #### Az Abszolút fensége
 
 ##### 1. vers
-A Legfelsőbb Úr szólt:
-Óh, kedves barátom, erőskarú Arjuna, figyelj ismét abszolút
-szavaimra, melyeket a te érdekedben szólok, s melyek
+A Legfelsőbb Úr szólt:  
+Óh, kedves barátom, erőskarú Arjuna, figyelj ismét abszolút  
+szavaimra, melyeket a te érdekedben szólok, s melyek  
 megörvendeztetnek majd.
 
 ##### 2. vers
-A félistenek serege és a kiváló szentek sem ismerik
-származásomat, mert Én vagyok mindnyájuk eredete minden
+A félistenek serege és a kiváló szentek sem ismerik  
+származásomat, mert Én vagyok mindnyájuk eredete minden  
 tekintetben.
 
 ##### 3. vers
-Aki Engem megszületetlennek, kezdet nélkülinek és az összes
-világ Legfelsőbb Urának ismer, az a többi halandótól
+Aki Engem megszületetlennek, kezdet nélkülinek és az összes  
+világ Legfelsőbb Urának ismer, az a többi halandótól  
 eltérően mentes az illúziótól és minden bűntől.
 
 ##### 4-5. vers
-Értelem, tudás, kétségtől és tévhittől való mentesség,
-megbocsátás, igazmondás, önszabályozás, nyugalom, gyönyör és
-fájdalom, születés és halál, félelemnélküliség,
-erőszaknélküliség, kiegyensúlyozottság, elégedettség,
-vezeklés, adományozás, hírnév és becstelenség - egyedül
+Értelem, tudás, kétségtől és tévhittől való mentesség,  
+megbocsátás, igazmondás, önszabályozás, nyugalom, gyönyör és  
+fájdalom, születés és halál, félelemnélküliség,  
+erőszaknélküliség, kiegyensúlyozottság, elégedettség,  
+vezeklés, adományozás, hírnév és becstelenség - egyedül  
 Tőlem származik mindez.
 
 ##### 6. vers
-A hét nagy bölcs, s az őket megelőző másik négy tudós,
-valamint a Manuk [az emberiség atyái] az Én elmémből
+A hét nagy bölcs, s az őket megelőző másik négy tudós,  
+valamint a Manuk [az emberiség atyái] az Én elmémből  
 születtek, s e bolygók összes lénye tőlük származik.
 
 ##### 7. vers
-Aki igazán ismeri az Én dicsőségemet és hatalmamat, az
-vegyítetlen odaadó szolgálatba fog - ehhez semmi kétség sem
+Aki igazán ismeri az Én dicsőségemet és hatalmamat, az  
+vegyítetlen odaadó szolgálatba fog - ehhez semmi kétség sem  
 fér.
 
 ##### 8. vers
-Én vagyok az eredete a lelki és az anyagi világnak, minden
-Belőlem árad. A bölcsek, akik tudva tudják ezt, megkezdik
+Én vagyok az eredete a lelki és az anyagi világnak, minden  
+Belőlem árad. A bölcsek, akik tudva tudják ezt, megkezdik  
 odaadó szolgálatukat, és tiszta szívből imádnak Engem.
 
 ##### 9. vers
-Tiszta híveim gondolatai Bennem lakoznak, életüket Nekem
-ajánlották fel. Nagy örömöt, elégedettséget élveznek ők,
+Tiszta híveim gondolatai Bennem lakoznak, életüket Nekem  
+ajánlották fel. Nagy örömöt, elégedettséget élveznek ők,  
 amikor felvilágosítják egymást, és Rólam társalognak.
 
 ##### 10. vers
-Akik szüntelen odaadással élnek, és szeretettel imádnak
-Engem, azoknak megadom azt az értelmet, amellyel eljuthatnak
+Akik szüntelen odaadással élnek, és szeretettel imádnak  
+Engem, azoknak megadom azt az értelmet, amellyel eljuthatnak  
 Hozzám.
 
 ##### 11. vers
-Együttérzésből szívükben lakozom, s a tudás fénylő
-lámpásával szétoszlatom a tudatlanságból származó
+Együttérzésből szívükben lakozom, s a tudás fénylő  
+lámpásával szétoszlatom a tudatlanságból származó  
 sötétséget.
 
 ##### 12-13. vers
-Arjuna szólott:
-Te vagy a Legfelsőbb Brahman, a legvégső hajlék, a tisztító,
-az Abszolút Igazság és az örök isteni Személy. Te vagy az
-ősi Isten, transzcendentális és eredeti, és Te vagy a
-megszületetlen, mindent átható szépség. Narada, Asita,
-Devala és Vyasa, valamint minden más nagy bölcs ezt hirdeti
+Arjuna szólott:  
+Te vagy a Legfelsőbb Brahman, a legvégső hajlék, a tisztító,  
+az Abszolút Igazság és az örök isteni Személy. Te vagy az  
+ősi Isten, transzcendentális és eredeti, és Te vagy a  
+megszületetlen, mindent átható szépség. Narada, Asita,  
+Devala és Vyasa, valamint minden más nagy bölcs ezt hirdeti  
 Rólad, és most Te Magad is ezt mondod nekem.
 
 ##### 14. vers
-Óh, Krsna, igazságként fogadom el mindazt, amit nekem
-elmondtál. Sem a félistenek, sem pedig a démonok nem ismerik
+Óh, Krsna, igazságként fogadom el mindazt, amit nekem  
+elmondtál. Sem a félistenek, sem pedig a démonok nem ismerik  
 személyedet, óh, Uram.
 
 ##### 15. vers
-Bizony egyedül csak Te ismered Magad képességeid által, óh,
-mindenek eredete, lények Ura, istenek Istene, óh, Legfelsőbb
+Bizony egyedül csak Te ismered Magad képességeid által, óh,  
+mindenek eredete, lények Ura, istenek Istene, óh, Legfelsőbb  
 Személy, univerzum Ura!
 
 ##### 16. vers
-Kérlek, beszélj nekem részletesen isteni erőidről, melyek
+Kérlek, beszélj nekem részletesen isteni erőidről, melyek  
 által áthatod a világokat, és bennük lakozol!
 
 ##### 17. vers
-Óh, Legfelsőbb Misztikus, hogyan lehet Téged megismerni a
-szüntelen meditálás folyamatával? Óh, Magasztos Úr, milyen
+Óh, Legfelsőbb Misztikus, hogyan lehet Téged megismerni a  
+szüntelen meditálás folyamatával? Óh, Magasztos Úr, milyen  
 sajátságos formákban elmélkedjem Rajtad?
 
 ##### 18. vers
-Kérlek, beszélj még egyszer részletesen hatalmas
-képességeidről és dicsőségedről, mert sohasem fáradok bele
+Kérlek, beszélj még egyszer részletesen hatalmas  
+képességeidről és dicsőségedről, mert sohasem fáradok bele  
 ambróziás szavaid hallgatásába.
 
 ##### 19. vers
-A Magasztos Úr szólott:
-Jó, beszélni fogok neked, óh, Kuruk legjobbja, csodálatos
-megnyilvánulásaimról, de csak a legfontosabbakról, mert
+A Magasztos Úr szólott:  
+Jó, beszélni fogok neked, óh, Kuruk legjobbja, csodálatos  
+megnyilvánulásaimról, de csak a legfontosabbakról, mert  
 fenségemnek nincsen határa.
 
 ##### 20. vers
-Óh, Gudakesa, Én vagyok a Lélek, aki ott lakozik minden
-élőlény szívében. Én vagyok minden lény kezdete, közepe és
+Óh, Gudakesa, Én vagyok a Lélek, aki ott lakozik minden  
+élőlény szívében. Én vagyok minden lény kezdete, közepe és  
 vége.
 
 ##### 21. vers
-Az Adityák közül Visnu, a csillagok közül a ragyogó Nap
-vagyok. A Marutok közül Marici, a világító égitestek közül
+Az Adityák közül Visnu, a csillagok közül a ragyogó Nap  
+vagyok. A Marutok közül Marici, a világító égitestek közül  
 pedig a Hold.
 
 ##### 22. vers
-A Vedák közül a Sama-veda vagyok, a félistenek közül Indra,
-az érzékek közül az elme, s Én vagyok az életerő [tudat]
+A Vedák közül a Sama-veda vagyok, a félistenek közül Indra,  
+az érzékek közül az elme, s Én vagyok az életerő [tudat]  
 minden élőlényben.
 
 ##### 23. vers
-A Rudrák közül az Úr Siva vagyok, a Yaksák és Raksasák közül
-a vagyon ura, Kuvera, a Vasuk közül a tűz [Agni], a hegyek
+A Rudrák közül az Úr Siva vagyok, a Yaksák és Raksasák közül  
+a vagyon ura, Kuvera, a Vasuk közül a tűz [Agni], a hegyek  
 közül Meru.
 
 ##### 24. vers
-Óh, Arjuna, tudd meg, hogy a papok közül Brhaspati főpap, az
-odaadás ura vagyok. A generálisok közül Skanda, a háború
+Óh, Arjuna, tudd meg, hogy a papok közül Brhaspati főpap, az  
+odaadás ura vagyok. A generálisok közül Skanda, a háború  
 ura, a vízgyűjtők közül az óceán.
 
 ##### 25. vers
-A nagy bölcsek közül Bhrgu, a vibrációkban a
-transzcendentális om vagyok. Az áldozatokból a Szent Nevek
+A nagy bölcsek közül Bhrgu, a vibrációkban a  
+transzcendentális om vagyok. Az áldozatokból a Szent Nevek  
 vibrálása [japa], a mozdíthatatlan dolgok közül a Himalája.
 
 ##### 26. vers
-Valamennyi fa közül a szent fügefa, a félisten-bölcsek közül
-Narada, a félistenek énekesei közül Citraratha, a tökéletes
+Valamennyi fa közül a szent fügefa, a félisten-bölcsek közül  
+Narada, a félistenek énekesei közül Citraratha, a tökéletes  
 lények közül Kapila vagyok.
 
 ##### 27. vers
-Tudd meg, hogy a lovak közül az óceánból származó, a
-halhatatlanság elixírjéből született Uccaihsrava vagyok. A
+Tudd meg, hogy a lovak közül az óceánból származó, a  
+halhatatlanság elixírjéből született Uccaihsrava vagyok. A  
 királyi elefántok közül Airavata, az emberek közül a király.
 
 ##### 28. vers
-A fegyverek közül a villám, a tehenek közül surabhi, a
-mértéktelen tejelő, az ősnemzők közül Kandarpa, a szerelem
+A fegyverek közül a villám, a tehenek közül surabhi, a  
+mértéktelen tejelő, az ősnemzők közül Kandarpa, a szerelem  
 istene, a kígyók közül a legnagyobb, Vasuki vagyok.
 
 ##### 29. vers
-A felsőbb bolygóbeli Naga kígyók közül Ananta, a vízi
-istenségek közül Varuna, az eltávozott ősök közül Aryama, s
+A felsőbb bolygóbeli Naga kígyók közül Ananta, a vízi  
+istenségek közül Varuna, az eltávozott ősök közül Aryama, s  
 a törvényt hozók közül Yama, a halál ura vagyok.
 
 ##### 30. vers
-A Daitya démonok közül az odaadó Prahlada, a hódítók közül
-az idő, a vadállatok közül az oroszlán, a madarak közül
+A Daitya démonok közül az odaadó Prahlada, a hódítók közül  
+az idő, a vadállatok közül az oroszlán, a madarak közül  
 Garuda, Visnu tollas hordozója vagyok.
 
 ##### 31. vers
-A tisztító dolgok közül a szél, a fegyverforgatók közül
-Rama, a halfajták közül a cápa, a folyóvizek közül a Gangesz
+A tisztító dolgok közül a szél, a fegyverforgatók közül  
+Rama, a halfajták közül a cápa, a folyóvizek közül a Gangesz  
 vagyok.
 
 ##### 32. vers
-Óh, Arjuna, az összes teremtmény közül Én vagyok a kezdet, a
-közép és a vég. A tudományok közül az önvalóról szóló lelki
+Óh, Arjuna, az összes teremtmény közül Én vagyok a kezdet, a  
+közép és a vég. A tudományok közül az önvalóról szóló lelki  
 tudomány, a logikában a végső igazság vagyok.
 
 ##### 33. vers
-A betűkből az A, az összetett szavakban a kettős szó vagyok,
-de Én a kimeríthetetlen időként is létezem. A teremtők közül
+A betűkből az A, az összetett szavakban a kettős szó vagyok,  
+de Én a kimeríthetetlen időként is létezem. A teremtők közül  
 Brahma vagyok, kinek sokarcú feje minden irányban lát.
 
 ##### 34. vers
-Én vagyok a mindenkit elpusztító halál, és a jövőben
-keletkező dolgok létrehozója. A nők közül hírnév, szerencse,
+Én vagyok a mindenkit elpusztító halál, és a jövőben  
+keletkező dolgok létrehozója. A nők közül hírnév, szerencse,  
 beszéd, memória, értelem, hűség és türelem vagyok.
 
 ##### 35. vers
-A himnuszok közül az Úr Indrának énekelt Brhat-sama vagyok.
-A versek közül Én vagyok a Gayatri, amit a brahmanák
-vibrálnak naponta. A hónapok közül az aratás hónapja, az
+A himnuszok közül az Úr Indrának énekelt Brhat-sama vagyok.  
+A versek közül Én vagyok a Gayatri, amit a brahmanák  
+vibrálnak naponta. A hónapok közül az aratás hónapja, az  
 évszakok közül a virágot fakasztó tavasz vagyok.
 
 ##### 36. vers
-A csalások közül a szerencsejáték, a ragyogók között a
-ragyogás, de Én vagyok a győzelem, a kaland és az erősek
+A csalások közül a szerencsejáték, a ragyogók között a  
+ragyogás, de Én vagyok a győzelem, a kaland és az erősek  
 ereje is.
 
 ##### 37. vers
-Vrsni leszármazottai közül Vasudeva, a Pandavák között
-Arjuna, a bölcsek közül Vyasa, s a nagy gondolkodók közül
+Vrsni leszármazottai közül Vasudeva, a Pandavák között  
+Arjuna, a bölcsek közül Vyasa, s a nagy gondolkodók közül  
 Usana vagyok.
 
 ##### 38. vers
-A büntetések közül a büntetés lesújtó botja, a győzelemre
-vágyók közül az erkölcs, a csend formájában a titkok őre, a
+A büntetések közül a büntetés lesújtó botja, a győzelemre  
+vágyók közül az erkölcs, a csend formájában a titkok őre, a  
 bölcsek között a bölcsesség vagyok.
 
 ##### 39. vers
-Óh, Arjuna, ezenkívül Én vagyok minden lét teremtő magja.
-Nincsen olyan mozgó vagy mozdulatlan lény, ami létezhetne
+Óh, Arjuna, ezenkívül Én vagyok minden lét teremtő magja.  
+Nincsen olyan mozgó vagy mozdulatlan lény, ami létezhetne  
 Nélkülem.
 
 ##### 40. vers
-Óh, ellenség hatalmas legyőzője, isteni megnyilvánulásaim
-végtelenek. Amit felsoroltam neked, az töredéke csupán
+Óh, ellenség hatalmas legyőzője, isteni megnyilvánulásaim  
+végtelenek. Amit felsoroltam neked, az töredéke csupán  
 végtelen fenségemnek.
 
 ##### 41. vers
-Tudd meg, hogy minden gyönyörű, dicsőséges és hatalmas
+Tudd meg, hogy minden gyönyörű, dicsőséges és hatalmas  
 teremtmény pompám szikrájából születik csupán.
 
 ##### 42. vers
-De mire való ez a részletes tudomány, óh, Arjuna? Énem
-parányi töredékével áthatom, és fenntartom ezt az egész
+De mire való ez a részletes tudomány, óh, Arjuna? Énem  
+parányi töredékével áthatom, és fenntartom ezt az egész  
 univerzumot.
 
 
