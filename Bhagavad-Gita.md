@@ -231,7 +231,7 @@ Nem látom, mi jó származhat abból, ha megölöm rokonaimat e
 harcban. Kedves Krsna, nem vágyom a győzelemre, és a  
 királyság, a dicső gyönyör sem kell nekem.
 
-#### 32-35. vers
+##### 32-35. vers
 Óh, Govinda, mit ér nekünk a királyság, a boldogság, vagy  
 mit ér maga az élet, ha azok, akiknek kedvéért erre vágyunk,  
 most itt sorakoznak előttünk? Óh, Madhusudana, még ha én  
@@ -693,236 +693,236 @@ is rá, képes Isten birodalmába hatolni.
 #### Karma-yoga
 
 ##### 1. vers
-Arjuna szólt:
-Óh, Janardana! Óh, Kesava! Miért késztetsz, hogy részt
-vegyek ez iszonyatos harcban, ha véleményed szerint az
+Arjuna szólt:  
+Óh, Janardana! Óh, Kesava! Miért késztetsz, hogy részt  
+vegyek ez iszonyatos harcban, ha véleményed szerint az  
 értelem jobb a gyümölcsöző munkánál?
 
 ##### 2. vers
-Kétértelmű utasításaid megtévesztették értelmemet. Ezért
-kérlek, mondd meg nekem világosan, mi a leghasznosabb
+Kétértelmű utasításaid megtévesztették értelmemet. Ezért  
+kérlek, mondd meg nekem világosan, mi a leghasznosabb  
 számomra!
 
 ##### 3. vers
-Az Istenség Legfelsőbb Személyisége szólt:
-Óh, bűntelen Arjuna, már megmagyaráztam, hogy az emberek két
-rétege valósítja meg az Abszolútat. Némelyek empirikus,
-filozófiai spekuláció útján, mások odaadó szolgálat által
+Az Istenség Legfelsőbb Személyisége szólt:  
+Óh, bűntelen Arjuna, már megmagyaráztam, hogy az emberek két  
+rétege valósítja meg az Abszolútat. Némelyek empirikus,  
+filozófiai spekuláció útján, mások odaadó szolgálat által  
 kívánják azt megérteni.
 
 ##### 4. vers
-Az ember nem szabadulhat meg a visszahatásoktól csupán
-azáltal, hogy eláll a munkától, és pusztán lemondással sem
+Az ember nem szabadulhat meg a visszahatásoktól csupán  
+azáltal, hogy eláll a munkától, és pusztán lemondással sem  
 érhet el tökéletességet.
 
 ##### 5. vers
-Minden ember akaratlanul kényszerítve van, hogy az anyagi
-kötőerőkből születő impulzusok szerint cselekedjen; ezért
+Minden ember akaratlanul kényszerítve van, hogy az anyagi  
+kötőerőkből születő impulzusok szerint cselekedjen; ezért  
 senki sem maradhat tétlen, még egy pillanatra sem.
 
 ##### 6. vers
-Aki visszatartja érzékeit és cselekvésre szolgáló szerveit,
-ám elméje továbbra is az érzékek tárgyain csüng, az
+Aki visszatartja érzékeit és cselekvésre szolgáló szerveit,  
+ám elméje továbbra is az érzékek tárgyain csüng, az  
 bizonyára becsapja magát, és az ilyet álszentnek hívják.
 
 ##### 7. vers
-Sokkal jobb az, aki elméjével uralkodik érzékein,
-cselekvésre szolgáló szerveit pedig ragaszkodás nélkül
+Sokkal jobb az, aki elméjével uralkodik érzékein,  
+cselekvésre szolgáló szerveit pedig ragaszkodás nélkül  
 odaadó munkával foglalja le.
 
 ##### 8. vers
-Végezd előírt kötelességed, mert a cselekvés jobb a
-tétlenségnél! Az ember még fizikai testét sem képes
+Végezd előírt kötelességed, mert a cselekvés jobb a  
+tétlenségnél! Az ember még fizikai testét sem képes  
 fenntartani munka nélkül.
 
 ##### 9. vers
-Az ember végezze úgy munkáját, hogy az áldozat legyen
-Visnunak, mert különben a munka leköti az anyagi világhoz.
-Ezért, óh, Kunti fia, teljesítsd előírt kötelességed az ő
-örömére, s ily módon mindig mentes maradsz a ragaszkodástól,
+Az ember végezze úgy munkáját, hogy az áldozat legyen  
+Visnunak, mert különben a munka leköti az anyagi világhoz.  
+Ezért, óh, Kunti fia, teljesítsd előírt kötelességed az ő  
+örömére, s ily módon mindig mentes maradsz a ragaszkodástól,  
 és megszabadulsz a kötelékektől!
 
 ##### 10. vers
-A teremtés kezdetén az összes élőlény Ura az emberek és
-félistenek generációit bocsátotta előre Visnunak szánt
-áldozatokkal, aztán megáldotta őket, mondván: "Legyetek
-boldogok e yajna (áldozat) által, mert ennek végrehajtása
+A teremtés kezdetén az összes élőlény Ura az emberek és  
+félistenek generációit bocsátotta előre Visnunak szánt  
+áldozatokkal, aztán megáldotta őket, mondván: "Legyetek  
+boldogok e yajna (áldozat) által, mert ennek végrehajtása  
 majd megajándékoz benneteket minden kívánatos dologgal!"
 
 ##### 11. vers
-A félistenek, akiket az áldozatok megörvendeztettek, szintén
-a kedvedben fognak járni, és általános jólét fog uralkodni,
+A félistenek, akiket az áldozatok megörvendeztettek, szintén  
+a kedvedben fognak járni, és általános jólét fog uralkodni,  
 ha ily módon tápláljátok egymást.
 
 ##### 12. vers
-Ha a különféle életszükségletekről gondoskodó félistenek
-elégedettek a yajna végzésével, ellátják az embereket minden
-szükségessel. De minden bizonnyal tolvaj az, aki élvezi ezen
+Ha a különféle életszükségletekről gondoskodó félistenek  
+elégedettek a yajna végzésével, ellátják az embereket minden  
+szükségessel. De minden bizonnyal tolvaj az, aki élvezi ezen  
 adományokat anélkül, hogy visszaajánlaná a félisteneknek.
 
 ##### 13. vers
-A bhakták megszabadulnak mindenféle bűntől, mert csak olyan
-ételt fogyasztanak, amit először felajánlottak áldozat
-gyanánt. Mások, akik személyes érzéki élvezetükre készítenek
+A bhakták megszabadulnak mindenféle bűntől, mert csak olyan  
+ételt fogyasztanak, amit először felajánlottak áldozat  
+gyanánt. Mások, akik személyes érzéki élvezetükre készítenek  
 ételt, bizony csak bűnt esznek.
 
 ##### 14. vers
-Mindenki teste gabonaféléken él, melyeket az eső termel.
-Yajna (áldozat) végzéséből ered az eső, yajna pedig az
+Mindenki teste gabonaféléken él, melyeket az eső termel.  
+Yajna (áldozat) végzéséből ered az eső, yajna pedig az  
 előírt kötelességekből.
 
 ##### 15. vers
-A szabályozó cselekedeteket a Vedák írják elő, a Vedák pedig
-az Istenség Legfelsőbb Személyiségének közvetlen
-megnyilvánulásai. Következésképpen a mindent átható
+A szabályozó cselekedeteket a Vedák írják elő, a Vedák pedig  
+az Istenség Legfelsőbb Személyiségének közvetlen  
+megnyilvánulásai. Következésképpen a mindent átható  
 Transzcendencia mindig jelen van az áldozati tettekben.
 
 ##### 16. vers
-Kedves Arjuna, ha valaki nem követi ezt az előírt védikus
-áldozatkört, az biztosan bűnös életet él, mert léte
+Kedves Arjuna, ha valaki nem követi ezt az előírt védikus  
+áldozatkört, az biztosan bűnös életet él, mert léte  
 hiábavaló annak, aki csak az érzékekben leli örömét.
 
 ##### 17. vers
-De aki az önvalóban találja meg örömét, az önvalóban
-felvilágosult és egyedül az önvalóval teljesen elégedett -
+De aki az önvalóban találja meg örömét, az önvalóban  
+felvilágosult és egyedül az önvalóval teljesen elégedett -  
 számára nincsen kötelesség.
 
 ##### 18. vers
-Az önmegvalósult embernek nincsen személyes szándéka, amit
-teljesíteni akarna előírt kötelességei végrehajtása közben,
-de arra sincs semmi oka, hogy ne hajtson végre ilyen munkát;
+Az önmegvalósult embernek nincsen személyes szándéka, amit  
+teljesíteni akarna előírt kötelességei végrehajtása közben,  
+de arra sincs semmi oka, hogy ne hajtson végre ilyen munkát;  
 ő nem függ semmilyen más élőlénytől.
 
 ##### 19. vers
-Ezért kellene az embernek a kötelesség kedvéért cselekednie
-állandóan, anélkül, hogy ragaszkodna tettei gyümölcseihez.
-Aki így, vonzódás nélkül cselekszik, az eléri a
+Ezért kellene az embernek a kötelesség kedvéért cselekednie  
+állandóan, anélkül, hogy ragaszkodna tettei gyümölcseihez.  
+Aki így, vonzódás nélkül cselekszik, az eléri a  
 Legfelsőbbet.
 
 ##### 20. vers
-Előírt kötelességük teljesítésével még a királyok is - mint
-Janaka és mások - elérték a tökéletes állapotot. Cselekedned
+Előírt kötelességük teljesítésével még a királyok is - mint  
+Janaka és mások - elérték a tökéletes állapotot. Cselekedned  
 kell hát a köznép tanítása érdekében!
 
 ##### 21. vers
-Bármit is tegyen egy nagy egyéniség, a közönséges emberek
-nyomdokába lépnek; és bármilyen irányadó mértéket is szabjon
+Bármit is tegyen egy nagy egyéniség, a közönséges emberek  
+nyomdokába lépnek; és bármilyen irányadó mértéket is szabjon  
 meg saját példájával, az egész világ követi őt.
 
 ##### 22. vers
-Óh, Prtha fia, Számomra nincsen előírt munka a három
-bolygórendszerben. Semmire sincs szükségem, és nincs semmi,
+Óh, Prtha fia, Számomra nincsen előírt munka a három  
+bolygórendszerben. Semmire sincs szükségem, és nincs semmi,  
 amit el kellene érnem - mégis végzek munkát.
 
 ##### 23. vers
-Mert ha Én nem cselekednék, óh, Partha, az emberek minden
+Mert ha Én nem cselekednék, óh, Partha, az emberek minden  
 bizonnyal követnék példámat.
 
 ##### 24. vers
-Mert ha Én abbahagynám a munkát, romba dőlne az egész világ.
-Én lennék az oka a nemkívánatos népességnek is, s ezáltal
+Mert ha Én abbahagynám a munkát, romba dőlne az egész világ.  
+Én lennék az oka a nemkívánatos népességnek is, s ezáltal  
 véget vetnék minden érző lény békéjének.
 
 ##### 25. vers
-Óh, Bharata leszármazottja, a tudatlanok eredményre vágyva
-hajtják végre kötelességeiket. Hogy az embereket a helyes
-úton vezesse, a bölcs is cselekszik, de a tetteihez való
+Óh, Bharata leszármazottja, a tudatlanok eredményre vágyva  
+hajtják végre kötelességeiket. Hogy az embereket a helyes  
+úton vezesse, a bölcs is cselekszik, de a tetteihez való  
 ragaszkodás nélkül.
 
 ##### 26. vers
-A bölcs ne zavarja meg a gyümölcsöző tettekhez ragaszkodó
-tudatlanok elméjét. Nem a tétlenségre kell buzdítani őket,
+A bölcs ne zavarja meg a gyümölcsöző tettekhez ragaszkodó  
+tudatlanok elméjét. Nem a tétlenségre kell buzdítani őket,  
 hanem az odaadó szellemben végzett munkára.
 
 ##### 27. vers
-A megtévesztett szellemi lélek az anyagi természet három
-kötőerejének hatása alatt önmagát hiszi a tettek
+A megtévesztett szellemi lélek az anyagi természet három  
+kötőerejének hatása alatt önmagát hiszi a tettek  
 végrehajtójának, pedig valójában a természet végzi azokat.
 
 ##### 28. vers
-Óh, Erőskarú, az Abszolút Igazság ismerője nem lesz
-rabszolgája érzékeinek és azok kielégítésének, mert jól
+Óh, Erőskarú, az Abszolút Igazság ismerője nem lesz  
+rabszolgája érzékeinek és azok kielégítésének, mert jól  
 látja az odaadó és az érdekmunka közötti különbséget.
 
 ##### 29. vers
-A balgák az anyagi természet kötőerőitől megtévesztve
-teljesen lefoglalják magukat a materiális munkával, és így
-annak rabjává válnak. Tudatlanságuk következtében ugyan az
-efféle tettek alsóbbrendűek, a bölcsnek mégsem szabad
+A balgák az anyagi természet kötőerőitől megtévesztve  
+teljesen lefoglalják magukat a materiális munkával, és így  
+annak rabjává válnak. Tudatlanságuk következtében ugyan az  
+efféle tettek alsóbbrendűek, a bölcsnek mégsem szabad  
 megzavarni őket.
 
 ##### 30. vers
-Küzdj ezért, óh, Arjuna, minden munkádat Énnekem feláldozva,
+Küzdj ezért, óh, Arjuna, minden munkádat Énnekem feláldozva,  
 elmédet Rám irányítva, haszonvágy, önzés és letargia nélkül!
 
 ##### 31. vers
-Akik kötelességeiket az Én utasításaim szerint teljesítik,
-és hűségesen, irigység nélkül követik ezt a tanítást, azok
+Akik kötelességeiket az Én utasításaim szerint teljesítik,  
+és hűségesen, irigység nélkül követik ezt a tanítást, azok  
 felszabadulnak a karma rabságából.
 
 ##### 32. vers
-De akik irigységből nem veszik figyelembe ezt a tanítást, és
-nem gyakorolják rendszeresen, azokat minden tudástól
-megfosztottnak, rászedettnek, valamint tudatlanságra és
+De akik irigységből nem veszik figyelembe ezt a tanítást, és  
+nem gyakorolják rendszeresen, azokat minden tudástól  
+megfosztottnak, rászedettnek, valamint tudatlanságra és  
 rabságra kárhozottaknak kell tekinteni.
 
 ##### 33. vers
-Mindenki a saját természete szerint cselekszik, még a bölcs
+Mindenki a saját természete szerint cselekszik, még a bölcs  
 is. Mit érünk vele tehát, ha elfojtjuk azt?
 
 ##### 34. vers
-A megtestesült lények vonzalmat és irtózatot éreznek az
-érzéktárgyak iránt, de nem szabad ily módon az érzékek és
-tárgyaik hatalma alá kerülni, mert ezek csak akadályok az
+A megtestesült lények vonzalmat és irtózatot éreznek az  
+érzéktárgyak iránt, de nem szabad ily módon az érzékek és  
+tárgyaik hatalma alá kerülni, mert ezek csak akadályok az  
 önmegvalósítás útján.
 
 ##### 35. vers
-Sokkal jobb a saját előírt kötelességeket végrehajtani - még
-ha hibásan is -, mint másokét. Más feladatait végezni
-veszélyes, ennél jobb az is, ha az embert saját kötelessége
+Sokkal jobb a saját előírt kötelességeket végrehajtani - még  
+ha hibásan is -, mint másokét. Más feladatait végezni  
+veszélyes, ennél jobb az is, ha az embert saját kötelessége  
 közben éri a halál.
 
 ##### 36. vers
-Arjuna szólt:
-Óh, Vrsni leszármazottja, mi az, ami az embert akarata
+Arjuna szólt:  
+Óh, Vrsni leszármazottja, mi az, ami az embert akarata  
 ellenére, szinte erőszakkal bűnös tettekre kényszeríti?
 
 ##### 37. vers
-A Magasztos Úr így válaszolt:
-Csupán a kéj az, óh, Arjuna. Ez a szenvedély kötőerejével
-való társulásból születik, és később haraggá alakul át: ez a
+A Magasztos Úr így válaszolt:  
+Csupán a kéj az, óh, Arjuna. Ez a szenvedély kötőerejével  
+való társulásból születik, és később haraggá alakul át: ez a  
 világ mindent felemésztő, bűnös ellensége.
 
 ##### 38. vers
-Mint tüzet a füst, mint tükröt a por, mint magzatot anyja
+Mint tüzet a füst, mint tükröt a por, mint magzatot anyja  
 méhe, úgy burkolják be az élőlényt a kéj különböző fokai.
 
 ##### 39. vers
-Óh, Kunti fia, így fedi be az ember tiszta tudatát örök
-ellensége, a kéj, mely sohasem elégedett, és lángol, mint a
+Óh, Kunti fia, így fedi be az ember tiszta tudatát örök  
+ellensége, a kéj, mely sohasem elégedett, és lángol, mint a  
 tűz.
 
 ##### 40. vers
-Az érzékek, az elme és az értelem a székhelye a kéjnek,
-amely beborítja az élőlény igazi tudását, és tévútra vezeti
+Az érzékek, az elme és az értelem a székhelye a kéjnek,  
+amely beborítja az élőlény igazi tudását, és tévútra vezeti  
 őt.
 
 ##### 41. vers
-Ezért, óh, Arjuna, Bharata sarj legjobbja, még az elején
-zabolázd meg érzékeid szabályozásával a bűn e nagy jelképét
-(a kéjt), és semmisítsd meg a tudás és az önmegvalósítás e
+Ezért, óh, Arjuna, Bharata sarj legjobbja, még az elején  
+zabolázd meg érzékeid szabályozásával a bűn e nagy jelképét  
+(a kéjt), és semmisítsd meg a tudás és az önmegvalósítás e  
 rombolóját!
 
 ##### 42. vers
-A cselekvő érzékszervek felsőbbrendűek a tompa anyagnál, az
-elme az érzékeknél, az értelem az elménél, de ő (a lélek)
+A cselekvő érzékszervek felsőbbrendűek a tompa anyagnál, az  
+elme az érzékeknél, az értelem az elménél, de ő (a lélek)  
 még az értelemnél is felsőbbrendű.
 
 ##### 43. vers
-Ha megértette, hogy a lélek transzcendentális az anyagi
-érzékekhez, az elméhez és az értelemhez képest, az ember
-felsőbbrendű énjével uralkodjon az alsóbbrendű felett, s így
-lelki erővel győzze le a kéjként ismert telhetetlen
+Ha megértette, hogy a lélek transzcendentális az anyagi  
+érzékekhez, az elméhez és az értelemhez képest, az ember  
+felsőbbrendű énjével uralkodjon az alsóbbrendű felett, s így  
+lelki erővel győzze le a kéjként ismert telhetetlen  
 ellenséget.
 
 
