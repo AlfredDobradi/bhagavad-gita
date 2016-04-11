@@ -1904,179 +1904,179 @@ transzcendentális világba.
 #### A legbizalmasabb tudás
 
 ##### 1. vers
-A Legfelsőbb Személy szólt:
-Kedves Arjunám, mivel te sohasem irigykedsz Rám, átadom
-neked a legtitkosabb bölcseletet, melyet megismerve
+A Legfelsőbb Személy szólt:  
+Kedves Arjunám, mivel te sohasem irigykedsz Rám, átadom  
+neked a legtitkosabb bölcseletet, melyet megismerve  
 megszabadulsz az anyagi lét szenvedéseitől.
 
 ##### 2. vers
-Ez a tudás a bölcsesség királya, a legnagyobb titok az
-összes titok közül. Ez a legtisztább tudás, örökkévaló,
-örömmel végezhető, és a vallás tökéletessége, mert
-megvalósítása által közvetlen tapasztalatot nyújt az
+Ez a tudás a bölcsesség királya, a legnagyobb titok az  
+összes titok közül. Ez a legtisztább tudás, örökkévaló,  
+örömmel végezhető, és a vallás tökéletessége, mert  
+megvalósítása által közvetlen tapasztalatot nyújt az  
 önvalóról.
 
 ##### 3. vers
-Óh, Ellenség Legyőzője, akik az odaadó szolgálatban nem
-rendelkeznek hittel, azok nem érhetnek el Engem, hanem
+Óh, Ellenség Legyőzője, akik az odaadó szolgálatban nem  
+rendelkeznek hittel, azok nem érhetnek el Engem, hanem  
 visszatérnek az anyagi világbeli születéshez és halálhoz.
 
 ##### 4. vers
-Megnyilvánulatlan formámban ezt az egész univerzumot
+Megnyilvánulatlan formámban ezt az egész univerzumot  
 áthatom. Minden lény Bennem van, de Én nem vagyok bennük.
 
 ##### 5. vers
-És mégsem nyugszik Bennem minden teremtett. Íme misztikus
-hatalmam! Habár Én vagyok az összes élőlény fenntartója, s
-jelen vagyok mindenhol, mégis Én Magam vagyok a teremtés
+És mégsem nyugszik Bennem minden teremtett. Íme misztikus  
+hatalmam! Habár Én vagyok az összes élőlény fenntartója, s  
+jelen vagyok mindenhol, mégis Én Magam vagyok a teremtés  
 eredeti forrása.
 
 ##### 6. vers
-Tudd meg, hogy minden élőlény úgy nyugszik Bennem, miként a
+Tudd meg, hogy minden élőlény úgy nyugszik Bennem, miként a  
 mindenhol fújó, erős szél állandóan az éteri űrben.
 
 ##### 7. vers
-Óh, Kunti fia, a korszak végével minden anyagi
-megnyilvánulás visszatér Belém, de a következő korszak
+Óh, Kunti fia, a korszak végével minden anyagi  
+megnyilvánulás visszatér Belém, de a következő korszak  
 hajnalán újra teremtek energiám által.
 
 ##### 8. vers
-Ez az egész kozmikus megnyilvánulás Nekem van alárendelve.
-Akaratom által újra meg újra megnyilvánul, s végezetül
+Ez az egész kozmikus megnyilvánulás Nekem van alárendelve.  
+Akaratom által újra meg újra megnyilvánul, s végezetül  
 akaratom által is semmisül meg.
 
 ##### 9. vers
-Óh, Dhananjaya, mégsem kötnek meg ezek a tettek Engem.
-Mindig különálló vagyok tőlük, mintha semleges lenne
+Óh, Dhananjaya, mégsem kötnek meg ezek a tettek Engem.  
+Mindig különálló vagyok tőlük, mintha semleges lenne  
 helyzetem.
 
 ##### 10. vers
-Óh, Kunti fia, az anyagi természet az Én irányításom alatt
-működik, létrehozva a mozgó és mozdulatlan lényeket. Az
-anyagi természet törvénye alapján ismétlődve teremtődik, és
+Óh, Kunti fia, az anyagi természet az Én irányításom alatt  
+működik, létrehozva a mozgó és mozdulatlan lényeket. Az  
+anyagi természet törvénye alapján ismétlődve teremtődik, és  
 semmisül meg ez a megnyilvánulás.
 
 ##### 11. vers
-Az ostobák kigúnyolnak, mikor alászállok emberi alakomban.
-Nem ismerik transzcendentális természetem és mindenek felett
+Az ostobák kigúnyolnak, mikor alászállok emberi alakomban.  
+Nem ismerik transzcendentális természetem és mindenek felett  
 álló, páratlan uralmam.
 
 ##### 12. vers
-Ezek a megtévesztett emberek vonzódnak a démoni és ateista
-nézetekhez. Ebben az illuzórikus állapotban a
-felszabaduláshoz, a gyümölcsöző tettekhez és a tudomány
+Ezek a megtévesztett emberek vonzódnak a démoni és ateista  
+nézetekhez. Ebben az illuzórikus állapotban a  
+felszabaduláshoz, a gyümölcsöző tettekhez és a tudomány  
 műveléséhez fűzött összes reményük vereséget szenved.
 
 ##### 13. vers
-Óh, Prtha fia, a nagy lelkek, akik nincsenek illúzióban, az
-Isteni természet védelme alatt állnak. Teljesen lefoglalják
-magukat az odaadó szolgálatban, mert az Istenség Legfelsőbb
-Személyiségeként, eredetinek és kimeríthetetlennek ismernek
+Óh, Prtha fia, a nagy lelkek, akik nincsenek illúzióban, az  
+Isteni természet védelme alatt állnak. Teljesen lefoglalják  
+magukat az odaadó szolgálatban, mert az Istenség Legfelsőbb  
+Személyiségeként, eredetinek és kimeríthetetlennek ismernek  
 Engem.
 
 ##### 14. vers
-Ezek a nagy lelkek állandóan az Én dicsőségem zengik, nagy
-elszántsággal igyekeznek, s leborulva Előttem szüntelen
+Ezek a nagy lelkek állandóan az Én dicsőségem zengik, nagy  
+elszántsággal igyekeznek, s leborulva Előttem szüntelen  
 odaadással imádnak Engem.
 
 ##### 15. vers
-A tudást művelők a Legfelsőbb Urat imádják, mint a
-páratlanul állót, a sokban jelenlevőt és az univerzális
+A tudást művelők a Legfelsőbb Urat imádják, mint a  
+páratlanul állót, a sokban jelenlevőt és az univerzális  
 formát.
 
 ##### 16. vers
-Én vagyok a szertartás, az áldozat, az ősatyáknak szóló
-áldozás, a gyógyító fű és a transzcendentális mantra. Én
+Én vagyok a szertartás, az áldozat, az ősatyáknak szóló  
+áldozás, a gyógyító fű és a transzcendentális mantra. Én  
 vagyok a vaj, a tűz és a felajánlás.
 
 ##### 17. vers
-Én vagyok az univerzum atyja, az anya, a fenntartó és az
-ősatya. Én vagyok a tudás tárgya, a tisztító és az om
+Én vagyok az univerzum atyja, az anya, a fenntartó és az  
+ősatya. Én vagyok a tudás tárgya, a tisztító és az om  
 szótag. A Rg, Sama és Yajur szintén Én vagyok.
 
 ##### 18. vers
-Én vagyok a cél, a fenntartó, az úr, a tanú, a hajlék, a
-menedék és a legkedvesebb barát. Én vagyok a teremtés és a
-megsemmisülés, mindennek alapja, a nyugvóhely és az örök
+Én vagyok a cél, a fenntartó, az úr, a tanú, a hajlék, a  
+menedék és a legkedvesebb barát. Én vagyok a teremtés és a  
+megsemmisülés, mindennek alapja, a nyugvóhely és az örök  
 mag.
 
 ##### 19. vers
-Óh, Arjuna, Én adom a hőt, s Én irányítom az esőt és a
-szárazságot. Én vagyok a halhatatlanság megszemélyesítője
+Óh, Arjuna, Én adom a hőt, s Én irányítom az esőt és a  
+szárazságot. Én vagyok a halhatatlanság megszemélyesítője  
 is; a létezők és a nemlétezők egyaránt Bennem vannak.
 
 ##### 20. vers
-Akik a felsőbb bolygókra vágyva a Vedákat tanulmányozzák, és
-a soma italt fogyasztják, azok közvetve imádnak Engem. Ők
-Indra bolygóján fognak megszületni, hogy isteni élvezetekben
+Akik a felsőbb bolygókra vágyva a Vedákat tanulmányozzák, és  
+a soma italt fogyasztják, azok közvetve imádnak Engem. Ők  
+Indra bolygóján fognak megszületni, hogy isteni élvezetekben  
 vegyenek részt.
 
 ##### 21. vers
-A mennyei érzéki örömök élvezete után ismét visszatérnek a
-halandók bolygójára. Így a védikus elveket követve csupán
+A mennyei érzéki örömök élvezete után ismét visszatérnek a  
+halandók bolygójára. Így a védikus elveket követve csupán  
 röpke boldogsághoz jutottak.
 
 ##### 22. vers
-De akik odaadással imádnak Engem, transzcendentális Formámon
-meditálva, azoknak elhozom, amire szükségük van, s megőrzöm,
+De akik odaadással imádnak Engem, transzcendentális Formámon  
+meditálva, azoknak elhozom, amire szükségük van, s megőrzöm,  
 amijük van.
 
 ##### 23. vers
-Óh, Kunti fia, amit az ember a félisteneknek ajánl, igaz
+Óh, Kunti fia, amit az ember a félisteneknek ajánl, igaz  
 tudás nélkül teszi, hiszen valójában Engem illet az.
 
 ##### 24. vers
-Én vagyok az egyetlen élvező, és az áldozat egyedüli célja.
-Visszaesnek azok, akik nem ismerik fel igazi,
+Én vagyok az egyetlen élvező, és az áldozat egyedüli célja.  
+Visszaesnek azok, akik nem ismerik fel igazi,  
 transzcendentális természetemet.
 
 ##### 25. vers
-A félisteneket imádók a félistenek között fognak
-újraszületni, akik a szellemeket és hasonlókat imádják, azok
-közéjük születnek, az ősatyák imádói az ősatyákhoz jutnak, s
+A félisteneket imádók a félistenek között fognak  
+újraszületni, akik a szellemeket és hasonlókat imádják, azok  
+közéjük születnek, az ősatyák imádói az ősatyákhoz jutnak, s  
 akik Engem imádnak, azok Velem fognak élni.
 
 ##### 26. vers
-Ha valaki szeretettel és áhítattal áldoz Nekem egy levelet,
+Ha valaki szeretettel és áhítattal áldoz Nekem egy levelet,  
 virágot, gyümölcsöt vagy egy kis vizet, Én elfogadom azt.
 
 ##### 27. vers
-Óh, Kunti fia, ajánld fel Nekem mindazt, amit cselekszel,
+Óh, Kunti fia, ajánld fel Nekem mindazt, amit cselekszel,  
 eszel, elajándékozol, valamennyi vezekléseddel együtt!
 
 ##### 28. vers
-Ily módon megszabadulsz a jó és a rossz cselekedetek összes
-visszahatásától, s a lemondás ezen elvével felszabadulsz,
+Ily módon megszabadulsz a jó és a rossz cselekedetek összes  
+visszahatásától, s a lemondás ezen elvével felszabadulsz,  
 és eljutsz Hozzám.
 
 ##### 29. vers
-Én mindenkivel szemben egyenlő vagyok: senkire sem
-irigykedem, és olyan sincs, akivel pártoskodnék. De aki
-odaadással szolgál Engem, az Bennem van, a barátja vagyok, s
+Én mindenkivel szemben egyenlő vagyok: senkire sem  
+irigykedem, és olyan sincs, akivel pártoskodnék. De aki  
+odaadással szolgál Engem, az Bennem van, a barátja vagyok, s  
 Nekem is barátom ő.
 
 ##### 30. vers
-Még ha valaki a legszörnyűbb tettet is követi el, ha odaadó
-szolgálatot végez, szentnek kell tekinteni, mert a helyes
+Még ha valaki a legszörnyűbb tettet is követi el, ha odaadó  
+szolgálatot végez, szentnek kell tekinteni, mert a helyes  
 utat járja.
 
 ##### 31. vers
-Hamarosan tisztességessé válik, és maradandó békét ér el.
+Hamarosan tisztességessé válik, és maradandó békét ér el.  
 Óh, Kaunteya, hirdesd bátran, az Én hívem nem vész el soha!
 
 ##### 32. vers
-Óh, Partha, legyen az bárki: nő, kereskedő, vagy alacsony
-család szülötte, ha oltalmat keres Nálam, elérheti a
+Óh, Partha, legyen az bárki: nő, kereskedő, vagy alacsony  
+család szülötte, ha oltalmat keres Nálam, elérheti a  
 legfelsőbb rendeltetési helyet.
 
 ##### 33. vers
-Akkor hát mennyivel jobbak a brahmanák, az igazak, a bhakták
-és a szent királyok! Ők ebben az ideiglenes és nyomorúságos
+Akkor hát mennyivel jobbak a brahmanák, az igazak, a bhakták  
+és a szent királyok! Ők ebben az ideiglenes és nyomorúságos  
 világban szeretettel szolgálnak Engem.
 
 ##### 34. vers
-Elmédben gondolj mindig Rám, légy bhaktám, ajánld
-hódolatodat Nekem, és imádj Engem! A Bennem való teljes
+Elmédben gondolj mindig Rám, légy bhaktám, ajánld  
+hódolatodat Nekem, és imádj Engem! A Bennem való teljes  
 elmélyüléssel biztosan eljutsz Hozzám.
 
 
