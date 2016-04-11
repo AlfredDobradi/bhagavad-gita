@@ -3270,146 +3270,146 @@ cselekedjék úgy, hogy fokozatosan fejlődhessék általuk.
 #### A háromféle hit
 
 ##### 1. vers
-Arjuna kérdezett:
-Óh, Krsna, mi a helyzet azokkal, akik nem követik az Írások
-elveit, hanem a saját elképzeléseik szerint imádnak? Melyik
-kötőerőben vannak ők; a jóságéban, a szenvedélyében vagy a
+Arjuna kérdezett:  
+Óh, Krsna, mi a helyzet azokkal, akik nem követik az Írások  
+elveit, hanem a saját elképzeléseik szerint imádnak? Melyik  
+kötőerőben vannak ők; a jóságéban, a szenvedélyében vagy a  
 tudatlanságéban?
 
 ##### 2. vers
-A Legfelsőbb Úr szólott:
-A hit háromféle lehet: jó, szenvedélyes és tudatlan, attól
-függően, hogy a megtestesült lélekre melyik kötőerő
+A Legfelsőbb Úr szólott:  
+A hit háromféle lehet: jó, szenvedélyes és tudatlan, attól  
+függően, hogy a megtestesült lélekre melyik kötőerő  
 jellemző. Hallj hát most ezekről!
 
 ##### 3. vers
-Az ember egy bizonyos fajta hitet fejleszt ki, amelyik
-megegyezik azzal a kötőerővel, amelynek a hatása alatt áll.
-Úgy mondják: amilyen az élőlényre jellemző kötőerő, olyan a
+Az ember egy bizonyos fajta hitet fejleszt ki, amelyik  
+megegyezik azzal a kötőerővel, amelynek a hatása alatt áll.  
+Úgy mondják: amilyen az élőlényre jellemző kötőerő, olyan a  
 hite is.
 
 ##### 4. vers
-A jóság kötőerejében élők a félisteneket, a szenvedélyben
-levők a démonokat, a tudatlanság kötelékének rabjai pedig a
+A jóság kötőerejében élők a félisteneket, a szenvedélyben  
+levők a démonokat, a tudatlanság kötelékének rabjai pedig a  
 szellemeket és a hasonló lényeket imádják.
 
 ##### 5-6. vers
-Tudd meg, hogy akik büszkeségből, önzésből, bujaságból és
-ragaszkodásból olyan szigorú vezeklésbe és
-önmegtartóztatásba fognak, melyet az Írások nem ajánlanak,
-akiket a szenvedély hajt, és sanyargatják testszerveiket,
-valamint a testen belül lakozó Felsőlelket, azokat
+Tudd meg, hogy akik büszkeségből, önzésből, bujaságból és  
+ragaszkodásból olyan szigorú vezeklésbe és  
+önmegtartóztatásba fognak, melyet az Írások nem ajánlanak,  
+akiket a szenvedély hajt, és sanyargatják testszerveiket,  
+valamint a testen belül lakozó Felsőlelket, azokat  
 démonokként ismerik.
 
 ##### 7. vers
-Az étel, amiből mindenki részesül, szintén háromféle, az
-anyagi természet kötőerői szerint. Ugyanez vonatkozik az
-áldozásra, vezeklésre és adományozásra is. Most elmondom
+Az étel, amiből mindenki részesül, szintén háromféle, az  
+anyagi természet kötőerői szerint. Ugyanez vonatkozik az  
+áldozásra, vezeklésre és adományozásra is. Most elmondom  
 megkülönböztetésüket, figyelj jól!
 
 ##### 8-10. vers
-A jóság minőségében levő étel meghosszabbítja az
-élettartamot, megtisztítja az ember létét, erőt, egészséget,
-boldogságot és elégedettséget ad. Az ilyen tápláló étel
-édes, lédús, zsíros és ízes. A túl keserű, túlságosan
-savanyú, sós, csípős, száraz és égető ételt a szenvedély
-kötőerejében levők kedvelik. Az ilyen étel fájdalmat,
-kedvetlenséget és betegséget okoz. A tudatlanság minőségében
-élők a fogyasztás előtt három óránál tovább főzött, ízetlen,
+A jóság minőségében levő étel meghosszabbítja az  
+élettartamot, megtisztítja az ember létét, erőt, egészséget,  
+boldogságot és elégedettséget ad. Az ilyen tápláló étel  
+édes, lédús, zsíros és ízes. A túl keserű, túlságosan  
+savanyú, sós, csípős, száraz és égető ételt a szenvedély  
+kötőerejében levők kedvelik. Az ilyen étel fájdalmat,  
+kedvetlenséget és betegséget okoz. A tudatlanság minőségében  
+élők a fogyasztás előtt három óránál tovább főzött, ízetlen,  
 állott, bűzös, rothadó és tisztátlan ételt szeretik.
 
 ##### 11. vers
-Az áldozatok közül az van a jóság minőségében, amelyet a
-szilárd kötelességtudat és az Írások szabályai szerint
-hajtanak végre, anélkül, hogy ennek fejében valami jutalomra
+Az áldozatok közül az van a jóság minőségében, amelyet a  
+szilárd kötelességtudat és az Írások szabályai szerint  
+hajtanak végre, anélkül, hogy ennek fejében valami jutalomra  
 vágynának.
 
 ##### 12. vers
-Óh, Bharaták legjobbja, a szenvedély kötőereje jellemzi azt
-az áldozatot, melyet valamilyen anyagi célból, haszonlesően
+Óh, Bharaták legjobbja, a szenvedély kötőereje jellemzi azt  
+az áldozatot, melyet valamilyen anyagi célból, haszonlesően  
 és kérkedően hajtanak végre.
 
 ##### 13. vers
-A tudatlanság kötőerejében lévőnek kell tekinteni az Írások
-parancsaival ellenszegülő áldozatot, amelyikben nem osztanak
-lelki ételt, nem zengenek himnuszokat, nem jutalmazzák meg a
+A tudatlanság kötőerejében lévőnek kell tekinteni az Írások  
+parancsaival ellenszegülő áldozatot, amelyikben nem osztanak  
+lelki ételt, nem zengenek himnuszokat, nem jutalmazzák meg a  
 papokat, és amelyik hit nélküli.
 
 ##### 14. vers
-A test fegyelmezése a Legfelsőbb Úr, a brahmanák, a lelki
-tanítómester, valamint az olyan feljebbvalók, mint a szülők
-imádatából áll. A tisztaság, egyszerűség, cölibátus és
+A test fegyelmezése a Legfelsőbb Úr, a brahmanák, a lelki  
+tanítómester, valamint az olyan feljebbvalók, mint a szülők  
+imádatából áll. A tisztaság, egyszerűség, cölibátus és  
 erőszak nélküliség is ide sorolható.
 
 ##### 15. vers
-A beszéd fegyelmezése abból áll, hogy az ember igazmondó,
-jót akaróan, kedvesen, másokat nem sértve szól, és a Vedákat
+A beszéd fegyelmezése abból áll, hogy az ember igazmondó,  
+jót akaróan, kedvesen, másokat nem sértve szól, és a Vedákat  
 rendszeresen idézi.
 
 ##### 16. vers
-Az elme fegyelmezését pedig a lelki nyugalom, egyszerűség,
+Az elme fegyelmezését pedig a lelki nyugalom, egyszerűség,  
 higgadtság és a gondolatok tisztasága alkotja.
 
 ##### 17. vers
-A fegyelmezettség e három fajtája a jóság természetéhez
-tartozik, és az olyan emberek gyakorolják, akiknek nem az
+A fegyelmezettség e három fajtája a jóság természetéhez  
+tartozik, és az olyan emberek gyakorolják, akiknek nem az  
 anyagi haszon a céljuk, hanem a Legfelsőbb kielégítése.
 
 ##### 18. vers
-A hivalkodó vezeklés és önszigor a szenvedély kötőerejéhez
-tartozik, csapongó és ideiglenes, s azért végzik, hogy
+A hivalkodó vezeklés és önszigor a szenvedély kötőerejéhez  
+tartozik, csapongó és ideiglenes, s azért végzik, hogy  
 tiszteletet, megbecsülést és magasztalást szerezzenek.
 
 ##### 19. vers
-Az olyan vezeklésről és önszigorról, melyet ostobán,
-állhatatos önkínzással gyakorolnak, vagy mások
-megsebesítésével, esetleg megsemmisítésével jár, azt
+Az olyan vezeklésről és önszigorról, melyet ostobán,  
+állhatatos önkínzással gyakorolnak, vagy mások  
+megsebesítésével, esetleg megsemmisítésével jár, azt  
 mondják, hogy a tudatlanság kötőerejében van.
 
 ##### 20. vers
-A kötelességből, helyes időben és megfelelő helyen, érdemes
-személynek adott ajándékot, amely mentes az
-ellenszolgáltatás reményétől, a jóság minőségében végzett
+A kötelességből, helyes időben és megfelelő helyen, érdemes  
+személynek adott ajándékot, amely mentes az  
+ellenszolgáltatás reményétől, a jóság minőségében végzett  
 adományozásnak kell tekinteni.
 
 ##### 21. vers
-De a viszonzás reményében, gyümölcsöző eredményekre vágyva,
-vagy kelletlenül végzett adományozásról azt mondják, hogy a
+De a viszonzás reményében, gyümölcsöző eredményekre vágyva,  
+vagy kelletlenül végzett adományozásról azt mondják, hogy a  
 szenvedély kötőerejébe tartozik.
 
 ##### 22. vers
-A nem megfelelő időben és rossz helyen, méltatlan
-személyeknek, tisztelet nélkül, megvetéssel történő
+A nem megfelelő időben és rossz helyen, méltatlan  
+személyeknek, tisztelet nélkül, megvetéssel történő  
 adományozás a tudatlanság kötőerejében van.
 
 ##### 23. vers
-Om, tat, sat: e három szót a teremtés kezdete óta a
-Legfelsőbb Abszolút Igazság (Brahman) megjelölésére
-használják. A brahmanák a védikus himnuszok zengése közben,
-az áldozások alatt, a Legfelsőbb megörvendeztetése végett
+Om, tat, sat: e három szót a teremtés kezdete óta a  
+Legfelsőbb Abszolút Igazság (Brahman) megjelölésére  
+használják. A brahmanák a védikus himnuszok zengése közben,  
+az áldozások alatt, a Legfelsőbb megörvendeztetése végett  
 ejtik ki e szavakat.
 
 ##### 24. vers
-Ezért a transzcendentalisták a Legfelsőbb elérése érdekében
-mindig az om szóval kezdik az áldozatokat, adományozásokat
+Ezért a transzcendentalisták a Legfelsőbb elérése érdekében  
+mindig az om szóval kezdik az áldozatokat, adományozásokat  
 és vezekléseket.
 
 ##### 25. vers
-Az áldozatot, önfegyelmezést és adományozást önérdek nélkül,
-a tat szóval kell végrehajtani. E transzcendentális
+Az áldozatot, önfegyelmezést és adományozást önérdek nélkül,  
+a tat szóval kell végrehajtani. E transzcendentális  
 tetteknek az anyagi kötelékekből való kiszabadulás a céljuk.
 
 ##### 26-27. vers
-Az odaadó szolgálat tárgya az Abszolút Igazság, amit a sat
-szó jelöl. Óh, Partha, ezeket az áldozásokat, vezekléseket
-és adományozásokat a Legfelsőbb Személy örömére végzik, hűen
+Az odaadó szolgálat tárgya az Abszolút Igazság, amit a sat  
+szó jelöl. Óh, Partha, ezeket az áldozásokat, vezekléseket  
+és adományozásokat a Legfelsőbb Személy örömére végzik, hűen  
 az abszolút természethez.
 
 ##### 28. vers
-De ideiglenesek az olyan áldozatok, vezeklések és
-adományozások, melyeket a Legfelsőbben való hit nélkül
-végeznek, óh, Prtha fia, függetlenül attól, hogy milyen
-rituálék kísérték őket. Ezeket asatnak hívják, s nem érnek
+De ideiglenesek az olyan áldozatok, vezeklések és  
+adományozások, melyeket a Legfelsőbben való hit nélkül  
+végeznek, óh, Prtha fia, függetlenül attól, hogy milyen  
+rituálék kísérték őket. Ezeket asatnak hívják, s nem érnek  
 semmit, sem ebben, sem a következő életben.
 
 
