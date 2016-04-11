@@ -2712,179 +2712,179 @@ az főleg nagyon kedves Nekem.
 #### A prakrti, a purusa és a tudat
 
 ##### 1-2. vers
-Arjuna szólt:
-Kedves Krsna, szeretném megérteni a prakrtit, a purusát, a
-ksetrát, a ksetrajnát, a jnanát és a jneyamot.
-A Magasztos Úr így válaszolt:
-Óh, Kunti fia, az anyagi testet hívják ksetrának, ismerőjét
+Arjuna szólt:  
+Kedves Krsna, szeretném megérteni a prakrtit, a purusát, a  
+ksetrát, a ksetrajnát, a jnanát és a jneyamot.  
+A Magasztos Úr így válaszolt:  
+Óh, Kunti fia, az anyagi testet hívják ksetrának, ismerőjét  
 pedig ksetrajnának.
 
 ##### 3. vers
-Óh, Bharata leszármazottja, értsd meg, hogy szintén Én
-vagyok ksetrajna minden testben. Jnanának a testre, valamint
-annak birtokosára vonatkozó tudást hívják. Ez az Én
+Óh, Bharata leszármazottja, értsd meg, hogy szintén Én  
+vagyok ksetrajna minden testben. Jnanának a testre, valamint  
+annak birtokosára vonatkozó tudást hívják. Ez az Én  
 véleményem.
 
 ##### 4. vers
-Kérlek, halld most részletes leírásom a tett mezejéről,
-annak felépítéséről, változásairól, keletkezéséről,
+Kérlek, halld most részletes leírásom a tett mezejéről,  
+annak felépítéséről, változásairól, keletkezéséről,  
 ismerőjéről és hatásairól.
 
 ##### 5. vers
-A különféle bölcsek a Veda könyvekben [főleg a Vedanta-
-sutrában] írnak a tettek ismerőjéről és a tudásról, amely a
-tettek mezejéről szól, s ezt nagyon logikusan ok és
+A különféle bölcsek a Veda könyvekben [főleg a Vedanta-  
+sutrában] írnak a tettek ismerőjéről és a tudásról, amely a  
+tettek mezejéről szól, s ezt nagyon logikusan ok és  
 okozatként mutatják be.
 
 ##### 6-7. vers
-Az öt durva fizikai elem, a hamis ego, az értelem, a
-megnyilvánulatlan, a tíz érzék, az elme, az öt érzéki tárgy,
-vágy, irtózat, boldogság, az aggregátum, a léttünetek és a
-meggyőződések - ezeket együttesen a tettek mezejének és
+Az öt durva fizikai elem, a hamis ego, az értelem, a  
+megnyilvánulatlan, a tíz érzék, az elme, az öt érzéki tárgy,  
+vágy, irtózat, boldogság, az aggregátum, a léttünetek és a  
+meggyőződések - ezeket együttesen a tettek mezejének és  
 visszahatásainak tekintik.
 
 ##### 8-12. vers
-Alázatosság, büszkeség [nélküliség]*, erőszak nélküliség, béketűrés,
-egyszerűség, egy hiteles lelki tanítómester elfogadása,
-tisztaság, kitartás, önszabályozás, az érzékkielégítés
-tárgyairól való lemondás, mentesség a hamis egotól, a
-születés, öregség, betegség és halál okozta bajok meglátása,
-nem kötődés a gyermekekhez, feleséghez, otthonhoz és a
-többihez, valamint kiegyensúlyozottság a kívánt és a nem
-kívánt esetekben, állandó és vegyítetlen odaadás Irántam,
-elhagyatott helyen való élés, elkülönülés az emberek
-általános tömegétől, az önmegvalósítás fontosságának
-felismerése és az Abszolút Igazság utáni filozófiai kutatás
-- ezt mind tudásnak nyilvánítom, az ezzel ellenkezőt pedig
+Alázatosság, büszkeség (\*nélküliség), erőszak nélküliség, béketűrés,  
+egyszerűség, egy hiteles lelki tanítómester elfogadása,  
+tisztaság, kitartás, önszabályozás, az érzékkielégítés  
+tárgyairól való lemondás, mentesség a hamis egotól, a  
+születés, öregség, betegség és halál okozta bajok meglátása,  
+nem kötődés a gyermekekhez, feleséghez, otthonhoz és a  
+többihez, valamint kiegyensúlyozottság a kívánt és a nem  
+kívánt esetekben, állandó és vegyítetlen odaadás Irántam,  
+elhagyatott helyen való élés, elkülönülés az emberek  
+általános tömegétől, az önmegvalósítás fontosságának  
+felismerése és az Abszolút Igazság utáni filozófiai kutatás  
+\- ezt mind tudásnak nyilvánítom, az ezzel ellenkezőt pedig  
 tudatlanságnak.
 
 ##### 13. vers
-Most megmagyarázom a jneyamot, melynek ismeretével
-megízlelheted a halhatatlanságot, a kezdet nélkülit, a Nekem
-alárendeltet. Neve Brahman, vagyis lélek, s ez túl van az
+Most megmagyarázom a jneyamot, melynek ismeretével  
+megízlelheted a halhatatlanságot, a kezdet nélkülit, a Nekem  
+alárendeltet. Neve Brahman, vagyis lélek, s ez túl van az  
 anyagi világ ok és okozat törvényén.
 
 ##### 14. vers
-Mindenhová elnyúlnak karjai és lábai, arcai és szemei
-mindenhol jelen vannak, s mindent hall - így létezik a
+Mindenhová elnyúlnak karjai és lábai, arcai és szemei  
+mindenhol jelen vannak, s mindent hall - így létezik a  
 Felsőlélek.
 
 ##### 15. vers
-A Felsőlélek az eredeti forrása minden érzéknek, ám Ő mégis
-érzékek nélküli. Bár Ő minden lény fenntartója, mégis
-kötetlen. A természet fölött áll, ugyanakkor az anyagi
+A Felsőlélek az eredeti forrása minden érzéknek, ám Ő mégis  
+érzékek nélküli. Bár Ő minden lény fenntartója, mégis  
+kötetlen. A természet fölött áll, ugyanakkor az anyagi  
 természet összes kötőerejének mestere.
 
 ##### 16. vers
-A Legfelsőbb Igazság kívül is, belül is, a mozgóban és a
-mozdulatlanban is létezik. Ő túl van a látás és a tudás
-anyagi érzékszervének hatalmán. Bár nagyon-nagyon távol van,
+A Legfelsőbb Igazság kívül is, belül is, a mozgóban és a  
+mozdulatlanban is létezik. Ő túl van a látás és a tudás  
+anyagi érzékszervének hatalmán. Bár nagyon-nagyon távol van,  
 mégis megtalálható mindenki közelében is.
 
 ##### 17. vers
-Bár a Felsőlélek felosztottnak tűnik, valójában ez soha
-sincs így: Ő egy. Habár valamennyi élőlény fenntartója,
-tudni kell Róla, hogy mégis Ő az, aki elpusztít és megteremt
+Bár a Felsőlélek felosztottnak tűnik, valójában ez soha  
+sincs így: Ő egy. Habár valamennyi élőlény fenntartója,  
+tudni kell Róla, hogy mégis Ő az, aki elpusztít és megteremt  
 mindent.
 
 ##### 18. vers
-Ő a fényforrása minden fénylő tárgynak, túl van az anyag
-sötétségén és megnyilvánulatlan. Ő a tudás tárgya és célja.
+Ő a fényforrása minden fénylő tárgynak, túl van az anyag  
+sötétségén és megnyilvánulatlan. Ő a tudás tárgya és célja.  
 Mindenki szívében jelen van.
 
 ##### 19. vers
-Összefoglalóan leírtam a tettek mezejét, a tudást, valamint
-a tudás tárgyát. Teljességében csak a bhaktáim érthetik meg
+Összefoglalóan leírtam a tettek mezejét, a tudást, valamint  
+a tudás tárgyát. Teljességében csak a bhaktáim érthetik meg  
 ezeket, s így elérhetik az Én természetemet.
 
 ##### 20. vers
-Tudni kell, hogy az anyagi természet és az élőlények kezdet
-nélküliek. Változásaik, valamint a három kötőerő az anyagi
+Tudni kell, hogy az anyagi természet és az élőlények kezdet  
+nélküliek. Változásaik, valamint a három kötőerő az anyagi  
 természet termékei.
 
 ##### 21. vers
-Úgy mondják, a természet az oka minden anyagi tettnek és
-visszahatásnak, míg az élőlény a szenvedések és élvezetek
+Úgy mondják, a természet az oka minden anyagi tettnek és  
+visszahatásnak, míg az élőlény a szenvedések és élvezetek  
 okozója a világban.
 
 ##### 22. vers
-Ily módon élvezi az anyagi világgal kapcsolatba került
-élőlény a természet három kötőerejének termékeit. A gunákkal
-való társulás következtében különféle fajokban születik meg,
+Ily módon élvezi az anyagi világgal kapcsolatba került  
+élőlény a természet három kötőerejének termékeit. A gunákkal  
+való társulás következtében különféle fajokban születik meg,  
 s hol jó, hol rossz éri őt.
 
 ##### 23. vers
-Az anyagi testben van egy másik, egy transzcendentális
-élvező is - az Úr, a Legfelsőbb Birtokos, aki
-felülvigyázóként és engedélyezőként létezik, s akit
+Az anyagi testben van egy másik, egy transzcendentális  
+élvező is - az Úr, a Legfelsőbb Birtokos, aki  
+felülvigyázóként és engedélyezőként létezik, s akit  
 Felsőlélekként ismernek.
 
 ##### 24. vers
-Aki megérti az anyagi természetről, az élőlényről és a
-természet kötőerőinek egymásra hatásáról szóló filozófiát,
-az biztosan felszabaduláshoz jut. Az ilyen személy nem fog
-újra megszületni ebben a világban, függetlenül a jelenlegi
+Aki megérti az anyagi természetről, az élőlényről és a  
+természet kötőerőinek egymásra hatásáról szóló filozófiát,  
+az biztosan felszabaduláshoz jut. Az ilyen személy nem fog  
+újra megszületni ebben a világban, függetlenül a jelenlegi  
 helyzetétől.
 
 ##### 25. vers
-A Felsőlelket néhányan meditáció által, egyesek a tudás
-művelése révén, mások pedig a gyümölcsöző vágyaktól mentes
+A Felsőlelket néhányan meditáció által, egyesek a tudás  
+művelése révén, mások pedig a gyümölcsöző vágyaktól mentes  
 munka segítségével látják meg.
 
 ##### 26. vers
-Azután vannak olyanok is, akik másoktól hallottak a
-Legfelsőbb Személyről, s bár nem jártasak a lelki tudásban,
-elkezdték imádni Őt. Ők is túljutnak a halál birodalmán, s
-ezt éppen annak a képességüknek köszönhetik, hogy a hiteles
+Azután vannak olyanok is, akik másoktól hallottak a  
+Legfelsőbb Személyről, s bár nem jártasak a lelki tudásban,  
+elkezdték imádni Őt. Ők is túljutnak a halál birodalmán, s  
+ezt éppen annak a képességüknek köszönhetik, hogy a hiteles  
 forrásokra hallgattak.
 
 ##### 27. vers
-Óh, Bharaták vezére, minden létező, mozgó és mozdulatlan
-egyaránt, csupán összetevője a tettek mezejének és az azt
+Óh, Bharaták vezére, minden létező, mozgó és mozdulatlan  
+egyaránt, csupán összetevője a tettek mezejének és az azt  
 ismerőnek.
 
 ##### 28. vers
-Aki minden testben látja az egyéni lelket kísérő Paramatmát,
-és aki megérti, hogy sem az egyéni lélek, sem pedig a
+Aki minden testben látja az egyéni lelket kísérő Paramatmát,  
+és aki megérti, hogy sem az egyéni lélek, sem pedig a  
 Felsőlélek nem semmisül meg soha, az valóban lát.
 
 ##### 29. vers
-Aki a Felsőlelket minden élőlényben, mindig, mindenhol
-egyenlőnek látja, az nem degradálódik elméje által, s így
+Aki a Felsőlelket minden élőlényben, mindig, mindenhol  
+egyenlőnek látja, az nem degradálódik elméje által, s így  
 eléri a legvégső célt.
 
 ##### 30. vers
-Aki látja, hogy minden tettet az anyagi természet alkotta
-test hajt végre, és az önvaló nem tesz semmit, az valóban
+Aki látja, hogy minden tettet az anyagi természet alkotta  
+test hajt végre, és az önvaló nem tesz semmit, az valóban  
 lát.
 
 ##### 31. vers
-Amikor a bölcs ember többé nem látja a különbségeket, melyek
-a különféle anyagi testeknek tudhatók be, akkor eljut a
-Brahman-felfogáshoz, s így meglátja, hogy az élőlények
+Amikor a bölcs ember többé nem látja a különbségeket, melyek  
+a különféle anyagi testeknek tudhatók be, akkor eljut a  
+Brahman-felfogáshoz, s így meglátja, hogy az élőlények  
 mindenhová elterjednek.
 
 ##### 32. vers
-Az örökkévalóság látomásával rendelkezők tudják, hogy a
-lélek transzcendentális, örökké létező, s túl van a
-természet kötőerőin. Óh, Kunti fia, a lélek nem cselekszik
-soha, és nem is kötődik, habár kapcsolatban áll az anyagi
+Az örökkévalóság látomásával rendelkezők tudják, hogy a  
+lélek transzcendentális, örökké létező, s túl van a  
+természet kötőerőin. Óh, Kunti fia, a lélek nem cselekszik  
+soha, és nem is kötődik, habár kapcsolatban áll az anyagi  
 testtel.
 
 ##### 33. vers
-Finom fizikai természetéből adódóan az éter nem keveredik
-semmivel, bár mindent áthat. Hasonlóan, a lélek sem vegyül a
+Finom fizikai természetéből adódóan az éter nem keveredik  
+semmivel, bár mindent áthat. Hasonlóan, a lélek sem vegyül a  
 testtel, bár abban foglal helyet.
 
 ##### 34. vers
-Óh, Bharata fia, ahogy a Nap egyedül beragyogja ezt az egész
-bolygórendszert, úgy világítja meg belülről a lélek az egész
+Óh, Bharata fia, ahogy a Nap egyedül beragyogja ezt az egész  
+bolygórendszert, úgy világítja meg belülről a lélek az egész  
 testet a tudat sugaraival.
 
 ##### 35. vers
-Aki tudatosan látja a különbséget a tettek mezeje és annak
-tulajdonosa között, s képes megérteni a felszabadulás
-folyamatát az anyagi kötelékek alól, az szintén eléri a
+Aki tudatosan látja a különbséget a tettek mezeje és annak  
+tulajdonosa között, s képes megérteni a felszabadulás  
+folyamatát az anyagi kötelékek alól, az szintén eléri a  
 Legfelsőbbet.
 
 
