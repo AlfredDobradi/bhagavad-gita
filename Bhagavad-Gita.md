@@ -31,58 +31,58 @@ A Bhagavad-Gítá korábbi fordítóinak célja általában az volt, hogy félre
 
 ### Tartalomjegyzék
 
-1. Seregszemle a kuruksetrai csatamezőn
+1. Seregszemle a kuruksetrai csatamezőn  
 Az ellenséges seregek felsorakoztak. Arjuna a hős vitéz kedves rokonait, tanítóit, barátait pillantja meg mindkét oldalon, harci vágyban égve, készen arra, hogy életüket áldozzák a csatában. Együttérzés és bánat önti el, ereje elhagyja, elméjén zavar lesz úrrá, s nem akar többé harcolni.
 
-2. A Bhagavad-Gíta tartalmának összefoglalása
+2. A Bhagavad-Gíta tartalmának összefoglalása  
 Arjuna meghódol az Úr Krisna előtt, és a tanítványa lesz. Krisna az átmeneti anyagi test és az örök szellemi lélek közötti alapvető különbségről tanítja őt. Beszél a lélekvándorlásról, a Legfelsőbb önzetlen szolgálatának természetéről és az önmegvalósítást elért ember jellemzőiről.
 
-3. Karma-yoga
+3. Karma-yoga  
 Ebben az anyagi világban mindenkinek cselekednie kell. A tettek vagy az anyagi világhoz kötik az embert, vagy kiszabadítják onnan. A Legfelsőbb örömére önzetlenül cselekedve bárki felszabadulhat a karma (a tett és visszahatás) törvénye alól, és elsajátíthatja az önvalóról és a Legfelsőbbről szóló transzcendentális tudást.
 
-4. Transzcendentális tudás
+4. Transzcendentális tudás  
 A transzcendentális tudás - a lélekre, Istenre és kettőjük kapcsolatára vonatkozó lelki tudás - megtisztít és felszabadít. Ez a tudás önzetlen odaadó cselekedetek (karma-yoga) gyümölcse. Az Úr feltárja a Gíta ősidőkbe visszanyúló történetét, beszél annak céljáról és jelentősségéről, hogy időről időre alászáll az anyagi világa, valamint elmondja, milyen fontos, hogy egy guruhoz, egy lelki megvalósítást elért tanítóhoz forduljunk.
 
-5. Karma-yoga - cselekvés Krisna-tudatban
+5. Karma-yoga - cselekvés Krisna-tudatban  
 Minden tettét végrehajtva, ám bensőjében azok gyümölcséről lemondva a transzcendentális tudás tüzében megtisztult bölcs eléri a békét, megszabadul a ragaszkodástól, lelki látásmódra tesz szert és boldog lesz.
 
-6. Dhyana-yoga
+6. Dhyana-yoga  
 Az astanga-yoga mechanikus meditációjának gyakorlásával az ember képes uralkodni elméje és érzékei fölött, figyelmét pedig Paramátmára (a Felsőlélekre, az Úr szívben lakozó formájára) összpontosíthatja. Ez a yoga-folyamat a samadhiban tetőzik, amikor az ember tudata teljesen a Legfelsőbbe merül.
 
-7. Az Abszolútról szóló tudás
+7. Az Abszolútról szóló tudás  
 Az Úr Krisna a Legfelsőbb Igazság, a legfelsőbb ok, valamint minden anyagi és lelki dolog fenntartó ereje. Az emelkedett lelkek odaadóan meghódolnak Neki, míg az istentagadók elméjét másféle imádat köti le.
 
-8. A Legfelsőbb elérése
+8. A Legfelsőbb elérése  
 Ha valaki élete során, különösen pedig a halál pillanatában nagy odaadással az Úr Krisnára emlékezik, eljuthat az Ő legfelsőbb hajlékára, túl ezen az anyagi világon.
 
-9. A legbizalmasabb tudás
+9. A legbizalmasabb tudás  
 Az Úr Krisna a Legfelsőbb Isten, az imádat legfelsőbb középpontja. A lélek a transzcendentális szolgálaton (a bhaktin) keresztül örök kapcsolatban áll Vele. Tiszta odaadását felébresztve visszatérhet Hozzá a lelki világba.
 
-10. Az Abszolút fennsége
+10. Az Abszolút fennsége  
 Az anyagi és a lelki világban minden csodálatos megnyilvánulás, erő nagyság és fennség csupán Krisna isteni energiáinak és fennségének töredéke. Mint minden ok legfelsőbb oka, minden létező fenntartója és lényege, Krisna minden teremtett lény számára a legfelsőbb imádandó személy.
 
-11. Az univerzális forma
+11. Az univerzális forma  
 Az Úr Krisna isteni szemekkel ajándékozta meg Arjunát, s megmutatta neki látványos, végtelen formáját, a kozmikus univerzumot. Ezzel végleg bizonyosságot tesz isteni mivoltáról. Elmondja, hogy szépséges emberi formája az Istenség eredeti formája, melyet csakis az odaadó szolgálaton keresztül lehet megpillantani.
 
-12. Odaadó szolgálat
+12. Odaadó szolgálat  
 A bhakti-yoga, az Úr Krisna tiszta odaadó szolgálata a legmagasabb rendű és legmegfelelőbb eszköz a Krisna iránti tiszta szeretet eléréséhez, ami a lelki élet végső célja. Akik ezt a magasztos utat járják, isteni természetre tesznek szert.
 
-13. A természet, az élvező és a tudat
+13. A természet, az élvező és a tudat  
 Aki megérti a testet, a lelket és a fölöttük álló Felsőlélek közötti különbséget, kiszabadul ebből az anyagi világból.
 
-14. A természet három kötőereje
+14. A természet három kötőereje  
 Minden testet öltött lélek a természet három kötőerejének, a jóság, a szenvedély és a tudatlanság kötőerejének a irányítása alatt áll. Az Úr Krisna megmagyarázza, mik ezek a kötőerők, hogyan hatnak ránk, hogyan lehet legyőzni őket, valamint elmondja mi jellemzi azt az embert, aki elérte a transzcendentális állapotot.
 
-15. A Legfelsőbb Személy elérésének yogája
+15. A Legfelsőbb Személy elérésének yogája  
 A védikus tudás végső célja, hogy megszabaduljunk a kötelékektől, melyek az anyagi világhoz fűznek bennünket, s megértsük, hogy az Úr Krisna az Istenség Legfelsőbb Személyisége. Aki megérti, kicsoda Isten, az meghódol Előtte, s odaadó szolgálatához lát.
 
-16. Az isteni és a démoni természet
+16. Az isteni és a démoni természet  
 Akik démonikus tulajdonságokkal rendelkeznek, és a szentírások parancsait figyelmen kívül hagyva, saját szeszélyeiket követve élnek, alacsonyabb rendű fajokban születnek újjá, és létük az anyag börtönében tovább folytatódik. Akik azonban isteni tulajdonságok birtokában vannak, és a szentírások szabályainak engedelmeskedve élnek, lassanként lelki tökéletességre tesznek szert.
 
-17. A hit fajtái
+17. A hit fajtái  
 Az anyagi természet három kötőerejének megfelelően háromféle hit van, amely e kötőerőkből származik. Azoknak a tettei, akiknek hitét a szenvedély és a tudatlanság jellemzi, csupán átmeneti, anyagi eredményekkel járnak, míg a jóságban, a szentírások parancsait követve végrehajtott tettek megtisztítják a szívet, és az Úr Krisnába vetett tiszta hithez, valamint az Iránta érzett odaadáshoz vezetnek.
 
-18. Végkövetkeztetés - a tökéletes lemondás
+18. Végkövetkeztetés - a tökéletes lemondás  
 Krisna elmagyarázza a lemondás jelentését, és arról beszél, milyen hatással vannak a természet kötőerői az ember tudatára és tetteire. Elmondja, mi a Brahman-megvalósítás, beszél a Bhagavad-Gíta dicsőségéről és végkövetkeztetéséről: a vallás legmagasabbrendű formája az Úr Krisna előtti abszolút, feltétlen, szeretetteljes meghódolás, ami megszabadítja az embert minden bűntől, teljes megvilágosodással áldja meg, és képessé teszi arra, hogy visszatérjen Krisna örök lelki hajlékára.
 
 ### Első fejezet
