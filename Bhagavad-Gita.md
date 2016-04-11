@@ -2609,101 +2609,101 @@ eljut Hozzám.
 #### Az odaadó szolgálat
 
 ##### 1. vers
-Arjuna így kérdezett:
-Ki tekinthető tökéletesebbnek: aki mindig megfelelően imád
-Téged az odaadó szolgálatban, vagy aki a személytelen
+Arjuna így kérdezett:  
+Ki tekinthető tökéletesebbnek: aki mindig megfelelően imád  
+Téged az odaadó szolgálatban, vagy aki a személytelen  
 Brahmant, a megnyilvánulatlant imádja?
 
 ##### 2. vers
-A Magasztos Úr szólt:
-Aki elméjét személyes formámra rögzíti, s mindig nagy,
-transzcendentális hittel imád Engem, azt a
+A Magasztos Úr szólt:  
+Aki elméjét személyes formámra rögzíti, s mindig nagy,  
+transzcendentális hittel imád Engem, azt a  
 legtökéletesebbnek tekintem Én.
 
 ##### 3-4. vers
-De akik az érzékek szabályozásával, s azáltal, hogy
-egyenlőek mindenkivel szemben, teljesen az Abszolút Igazság
-személytelen aspektusát, a megnyilvánulatlant imádják, amely
-túl van az érzékek felfogásán, s mindent-átható,
-felfoghatatlan és mozdulatlan, az ilyen személyek, akik
+De akik az érzékek szabályozásával, s azáltal, hogy  
+egyenlőek mindenkivel szemben, teljesen az Abszolút Igazság  
+személytelen aspektusát, a megnyilvánulatlant imádják, amely  
+túl van az érzékek felfogásán, s mindent-átható,  
+felfoghatatlan és mozdulatlan, az ilyen személyek, akik  
 mindenki jólétéért fáradoznak - végül is elérnek Engem.
 
 ##### 5. vers
-Rendkívül nehéz előrehaladniuk azoknak, akiknek elméje a
-Legfelsőbb személytelen, megnyilvánulatlan aspektusához
-vonzódik. Ezen az úton mindig nagyon fáradságos az
+Rendkívül nehéz előrehaladniuk azoknak, akiknek elméje a  
+Legfelsőbb személytelen, megnyilvánulatlan aspektusához  
+vonzódik. Ezen az úton mindig nagyon fáradságos az  
 előrejutás a megtestesült lények számára.
 
 ##### 6-7. vers
-Óh, Prtha fia, gyorsan megszabadítom a születés és halál
-óceánjából azt, aki minden tettét Nekem felajánlva Engem
-imád, eltérés nélkül átadja magát Nekem, odaadó szolgálatban
+Óh, Prtha fia, gyorsan megszabadítom a születés és halál  
+óceánjából azt, aki minden tettét Nekem felajánlva Engem  
+imád, eltérés nélkül átadja magát Nekem, odaadó szolgálatban  
 él, és elméjét Rám szögezve mindig Rajtam meditál.
 
 ##### 8. vers
-Elmédet szögezd Rám, az Istenség Legfelsőbb Személyiségére,
-és Velem kapcsolatban használd minden értelmedet; így
+Elmédet szögezd Rám, az Istenség Legfelsőbb Személyiségére,  
+és Velem kapcsolatban használd minden értelmedet; így  
 kétségtelen, hogy mindig Velem fogsz élni.
 
 ##### 9. vers
-Kedves Arjunám, gazdagság meghódítója, ha képtelen vagy
-elmédet eltérés nélkül Rám szögezni, akkor kövesd a bhakti-
-yoga szabályozó elveit. Ily módon majd felébred a vágy
+Kedves Arjunám, gazdagság meghódítója, ha képtelen vagy  
+elmédet eltérés nélkül Rám szögezni, akkor kövesd a bhakti-  
+yoga szabályozó elveit. Ily módon majd felébred a vágy  
 benned, hogy elérj Engem.
 
 ##### 10. vers
-Ha nem tudod gyakorolni a bhakti-yoga szabályait, akkor
-próbálj csak Nekem dolgozni, mert ha Értem cselekszel, akkor
+Ha nem tudod gyakorolni a bhakti-yoga szabályait, akkor  
+próbálj csak Nekem dolgozni, mert ha Értem cselekszel, akkor  
 majd eléred a tökéletes szintet.
 
 ##### 11. vers
-Ha képtelen vagy ilyen tudatban dolgozni, akkor próbálj
-lemondani munkád minden gyümölcséről, s horgonyozz az
+Ha képtelen vagy ilyen tudatban dolgozni, akkor próbálj  
+lemondani munkád minden gyümölcséről, s horgonyozz az  
 önvalóban.
 
 ##### 12. vers
-Ha ezt sem tudod megtenni, akkor fogj a tudás művelésébe. A
-meditáció azonban jobb a tudásnál, a meditációnál pedig a
-munka gyümölcseiről való lemondás, mert ezáltal lelki
+Ha ezt sem tudod megtenni, akkor fogj a tudás művelésébe. A  
+meditáció azonban jobb a tudásnál, a meditációnál pedig a  
+munka gyümölcseiről való lemondás, mert ezáltal lelki  
 nyugalomhoz jut az ember.
 
 ##### 13-14. vers
-Aki nem irigy, hanem minden élőlény kedves barátja, nem
-képzeli tulajdonosnak magát, mentes a hamis egotól, azonos a
-boldogságban és boldogtalanságban, mindig elégedett, odaadó
-szolgálatban él, eltökélten igyekszik, elméje és értelme
-egyetértésben van Velem, s az Én bhaktám - az nagyon kedves
+Aki nem irigy, hanem minden élőlény kedves barátja, nem  
+képzeli tulajdonosnak magát, mentes a hamis egotól, azonos a  
+boldogságban és boldogtalanságban, mindig elégedett, odaadó  
+szolgálatban él, eltökélten igyekszik, elméje és értelme  
+egyetértésben van Velem, s az Én bhaktám - az nagyon kedves  
 Számomra.
 
 ##### 15. vers
-Aki nem okoz problémát senkinek sem, az aggodalom nem
-zavarja, s változatlan úgy a boldogságban, mint a
+Aki nem okoz problémát senkinek sem, az aggodalom nem  
+zavarja, s változatlan úgy a boldogságban, mint a  
 boldogtalanságban - az nagyon kedves Nekem.
 
 ##### 16. vers
-Az a bhaktám, aki nem függ a tettek szokásos folyásától,
-tiszta, ügyes, gondok nélküli, mentes minden fájdalomtól, s
-egy tettében sem törekszik a munka gyümölcsére - az nagyon
+Az a bhaktám, aki nem függ a tettek szokásos folyásától,  
+tiszta, ügyes, gondok nélküli, mentes minden fájdalomtól, s  
+egy tettében sem törekszik a munka gyümölcsére - az nagyon  
 kedves Nekem.
 
 ##### 17. vers
-Az olyan bhakta, aki nem vonzódik az anyagi örömhöz, de nem
-is gyűlöl, nem bánkódik és nem vágyakozik, lemond úgy a
-kedvező, mint a kedvezőtlen dolgokról - az nagyon kedves
+Az olyan bhakta, aki nem vonzódik az anyagi örömhöz, de nem  
+is gyűlöl, nem bánkódik és nem vágyakozik, lemond úgy a  
+kedvező, mint a kedvezőtlen dolgokról - az nagyon kedves  
 Nekem.
 
 ##### 18-19. vers
-Aki egyenlő barátaival és ellenségeivel szemben,
-kiegyensúlyozott a tiszteletben és szégyenben, hidegben és
-melegben, boldogságban és boldogtalanságban, jó és rossz
-hírben, mindig mentes az anyagi társulás szennyeződésétől,
-állandóan csendes, mindennel elégedett, nem törődik
-semmilyen hajlékkal, szilárd a tudásban, és odaadó
+Aki egyenlő barátaival és ellenségeivel szemben,  
+kiegyensúlyozott a tiszteletben és szégyenben, hidegben és  
+melegben, boldogságban és boldogtalanságban, jó és rossz  
+hírben, mindig mentes az anyagi társulás szennyeződésétől,  
+állandóan csendes, mindennel elégedett, nem törődik  
+semmilyen hajlékkal, szilárd a tudásban, és odaadó  
 szolgálattal foglalja le magát - az nagyon kedves Nekem.
 
 ##### 20. vers
-Az a bhakta, aki az odaadó szolgálat e maradandó útját
-járja, hittel szolgál, s Engem tekint legfelsőbb céljaként -
+Az a bhakta, aki az odaadó szolgálat e maradandó útját  
+járja, hittel szolgál, s Engem tekint legfelsőbb céljaként -  
 az főleg nagyon kedves Nekem.
 
 
