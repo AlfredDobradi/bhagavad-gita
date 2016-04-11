@@ -1580,159 +1580,159 @@ közül ő a legkiválóbb.
 #### Az Abszolútról szóló tudás
 
 ##### 1. vers
-A Magasztos Úr szólt:
-Halld most, óh, Prtha fia, hogyan ismerhetsz meg Engem
-teljesen, kétségtelenül, a Rólam való teljes tudat által, a
+A Magasztos Úr szólt:  
+Halld most, óh, Prtha fia, hogyan ismerhetsz meg Engem  
+teljesen, kétségtelenül, a Rólam való teljes tudat által, a  
 yoga gyakorlásával, az elmét Rám irányítva!
 
 ##### 2. vers
-Most részletesen megmagyarázom neked a fenomenális és a
-lelki tudományt is, s ha megértetted ezeket, nem lesz már
+Most részletesen megmagyarázom neked a fenomenális és a  
+lelki tudományt is, s ha megértetted ezeket, nem lesz már  
 semmi, amit tudnod kellene.
 
 ##### 3. vers
-Sok ezer ember közül talán egy törekszik tökéletességre, s a
+Sok ezer ember közül talán egy törekszik tökéletességre, s a  
 tökéletességet elértek közül igazán alig ismer Engem egy is.
 
 ##### 4. vers
-Föld, tűz, víz, levegő, éter, elme, értelem és hamis ego - e
+Föld, tűz, víz, levegő, éter, elme, értelem és hamis ego - e  
 nyolc képezi az Én különálló anyagi energiámat.
 
 ##### 5. vers
-Óh, Erős-karú, ezen alsóbbrendű természeten kívül van egy
-felsőbbrendű energiám, mégpedig az anyagi természettel küzdő
+Óh, Erős-karú, ezen alsóbbrendű természeten kívül van egy  
+felsőbbrendű energiám, mégpedig az anyagi természettel küzdő  
 élőlények, akik fenntartják az univerzumot.
 
 ##### 6. vers
-Meggyőződhetsz arról, hogy Én vagyok a forrása és a
+Meggyőződhetsz arról, hogy Én vagyok a forrása és a  
 feloszlása minden anyaginak és lelkinek.
 
 ##### 7. vers
-Óh, bőség meghódítója, Nálamnál nincsen felsőbb igazság.
+Óh, bőség meghódítója, Nálamnál nincsen felsőbb igazság.  
 Minden Rajtam nyugszik, mint gyöngysor a fonálon.
 
 ##### 8. vers
-Óh, Kunti fia, Én vagyok a víz íze, a Nap és a Hold fénye,
-az om szótag a védikus mantrákban, a hang az éterben, és az
+Óh, Kunti fia, Én vagyok a víz íze, a Nap és a Hold fénye,  
+az om szótag a védikus mantrákban, a hang az éterben, és az  
 emberi képesség.
 
 ##### 9. vers
-Én vagyok a föld eredeti illata, a tűz heve, az élők élete,
+Én vagyok a föld eredeti illata, a tűz heve, az élők élete,  
 valamint minden aszkéta vezeklése.
 
 ##### 10. vers
-Óh, Prtha fia, tudd meg hát: Én vagyok minden lét eredeti
+Óh, Prtha fia, tudd meg hát: Én vagyok minden lét eredeti  
 magja, az értelmesek értelme, a hatalmasok bátorsága.
 
 ##### 11. vers
-Óh, Bharaták ura, Én vagyok az erő az erősekben, azokban,
-akik vágy és szenvedély nélküliek; és Én vagyok az a nemi
+Óh, Bharaták ura, Én vagyok az erő az erősekben, azokban,  
+akik vágy és szenvedély nélküliek; és Én vagyok az a nemi  
 élet, amely nem ellenkezik a vallásos elvekkel.
 
 ##### 12. vers
-Mindegyik létállapot az Én energiámból nyilvánul meg, legyen
-az a jóság, a szenvedély vagy a tudatlanság kötőerejében.
-Tudd meg, hogy bizonyos értelemben Én vagyok minden, de
-mégis független mindentől. Rám nem hatnak az anyagi
+Mindegyik létállapot az Én energiámból nyilvánul meg, legyen  
+az a jóság, a szenvedély vagy a tudatlanság kötőerejében.  
+Tudd meg, hogy bizonyos értelemben Én vagyok minden, de  
+mégis független mindentől. Rám nem hatnak az anyagi  
 természet kötőerői.
 
 ##### 13. vers
-A három kötőerőtől megtévesztett világ nem ismer Engem, aki
+A három kötőerőtől megtévesztett világ nem ismer Engem, aki  
 a gunák felett állok, aki kimeríthetetlen vagyok.
 
 ##### 14. vers
-Az anyagi természet három kötőerejéből álló Isteni
-energiámat nagyon nehéz legyőzni. De akik átadták magukat
+Az anyagi természet három kötőerejéből álló Isteni  
+energiámat nagyon nehéz legyőzni. De akik átadták magukat  
 Nekem, azok könnyen túllépnek rajta.
 
 ##### 15. vers
-Az alábbi bűnös emberek nem hódolnak meg Előttem: a
-felettébb ostobák, az emberiség alja, akiket az illúzió
-megfosztott tudásuktól, s akik a démonok ateista
+Az alábbi bűnös emberek nem hódolnak meg Előttem: a  
+felettébb ostobák, az emberiség alja, akiket az illúzió  
+megfosztott tudásuktól, s akik a démonok ateista  
 természetével rendelkeznek.
 
 ##### 16. vers
-Óh, Bharaták legjobbja, négyféle jámbor ember végez odaadó
-szolgálatot Nekem: aki szenved, az anyagi javakra vágyó, a
+Óh, Bharaták legjobbja, négyféle jámbor ember végez odaadó  
+szolgálatot Nekem: aki szenved, az anyagi javakra vágyó, a  
 kíváncsi, és aki az Abszolútról szóló tudás után kutat.
 
 ##### 17. vers
-Ezek közül a teljes tudással rendelkező bölcs a legjobb, aki
-a tiszta, odaadó szolgálat által egyesül Velem, mert nagyon
+Ezek közül a teljes tudással rendelkező bölcs a legjobb, aki  
+a tiszta, odaadó szolgálat által egyesül Velem, mert nagyon  
 kedves Vagyok neki, és ő is kedves Számomra.
 
 ##### 18. vers
-Ezek a bhakták kétségtelenül mind nemes lelkek, de aki a
-Rólam szóló tudással rendelkezik, arra mint Bennem lakozóra
-tekintek Én. Transzcendentális szolgálata által ő elér
+Ezek a bhakták kétségtelenül mind nemes lelkek, de aki a  
+Rólam szóló tudással rendelkezik, arra mint Bennem lakozóra  
+tekintek Én. Transzcendentális szolgálata által ő elér  
 Engem, a legvégső célt.
 
 ##### 19. vers
-Sok-sok születés és halál után az igazi tudást elsajátító
-ember átadja magát Nekem, mert tudja, hogy Én vagyok minden
+Sok-sok születés és halál után az igazi tudást elsajátító  
+ember átadja magát Nekem, mert tudja, hogy Én vagyok minden  
 ok oka. Az ilyen nagy lélek bizony ritka.
 
 ##### 20. vers
-Kiknek elméjét eltorzították az anyagi vágyak, meghódolnak a
-félistenek előtt, és követik a saját természetük szerint
+Kiknek elméjét eltorzították az anyagi vágyak, meghódolnak a  
+félistenek előtt, és követik a saját természetük szerint  
 kiszabott imádatszabályokat.
 
 ##### 21. vers
-Mihelyt valaki a félisteneket kívánja imádni, Én [a mindenki
-szívében jelenlevő Felsőlélek] megszilárdítom hitét, hogy
+Mihelyt valaki a félisteneket kívánja imádni, Én [a mindenki  
+szívében jelenlevő Felsőlélek] megszilárdítom hitét, hogy  
 átadhassa magát annak a félistennek.
 
 ##### 22. vers
-Ilyen hittel felruházva, a kiválasztott félisten kegyét
-kereső vágyai teljesülnek. Valójában azonban egyedül Én
+Ilyen hittel felruházva, a kiválasztott félisten kegyét  
+kereső vágyai teljesülnek. Valójában azonban egyedül Én  
 vagyok az, aki ezeket az áldásokat adja.
 
 ##### 23. vers
-A csekély értelmű emberek a félisteneket imádják, de az
-efféle hódolat gyümölcsei korlátoltak és mulandóak. A
-félistenek imádói a hozzájuk tartozó bolygókra jutnak, míg
+A csekély értelmű emberek a félisteneket imádják, de az  
+efféle hódolat gyümölcsei korlátoltak és mulandóak. A  
+félistenek imádói a hozzájuk tartozó bolygókra jutnak, míg  
 bhaktáim végül az Én legfelsőbb bolygómra kerülnek.
 
 ##### 24. vers
-Az ostobák, akik nem ismernek Engem, azt hiszik, úgy
-öltöttem fel ezt a formát és személyiséget. Csekély tudásuk
-révén nem ismerik felsőbb természetemet, mely változatlan és
+Az ostobák, akik nem ismernek Engem, azt hiszik, úgy  
+öltöttem fel ezt a formát és személyiséget. Csekély tudásuk  
+révén nem ismerik felsőbb természetemet, mely változatlan és  
 páratlan.
 
 ##### 25. vers
-Én sohasem nyilvánulok meg a balgák és az értelem nélküliek
-előtt. Számukra rejtve maradok belső teremtő energiám, a
-yoga-maya által, így a megtévesztett világ Engem, a
+Én sohasem nyilvánulok meg a balgák és az értelem nélküliek  
+előtt. Számukra rejtve maradok belső teremtő energiám, a  
+yoga-maya által, így a megtévesztett világ Engem, a  
 megszületetlent és kimeríthetetlent nem ismer.
 
 ##### 26. vers
-Óh, Arjuna, mint az Istenség Legfelsőbb Személyisége, Én
-tudok mindenről, ami a múltban történt, ami most történik, s
-mindenről, ami a jövőben történni fog. Az összes élőlényt
+Óh, Arjuna, mint az Istenség Legfelsőbb Személyisége, Én  
+tudok mindenről, ami a múltban történt, ami most történik, s  
+mindenről, ami a jövőben történni fog. Az összes élőlényt  
 ismerem, Engem azonban senki sem.
 
 ##### 27. vers
-Óh, Bharata leszármazottja, óh, ellenség fenyítője, minden
-élőlény illúzióban születik, legyőzve a vágy és a gyűlölet
+Óh, Bharata leszármazottja, óh, ellenség fenyítője, minden  
+élőlény illúzióban születik, legyőzve a vágy és a gyűlölet  
 kettősségétől.
 
 ##### 28. vers
-Akik jámboran cselekedtek ebben és előző életükben, akiknek
-bűnös tettei teljesen kipusztultak, s akik megszabadultak az
-illúzió ellentétpárjaitól, azok határozottan hozzáfognak
+Akik jámboran cselekedtek ebben és előző életükben, akiknek  
+bűnös tettei teljesen kipusztultak, s akik megszabadultak az  
+illúzió ellentétpárjaitól, azok határozottan hozzáfognak  
 Szolgálatomhoz.
 
 ##### 29. vers
-Az értelmes emberek, akik igyekeznek megszabadulni az
-öregségtől és haláltól, menedéket keresnek a Hozzám irányuló
-odaadó szolgálatban. Valójában ők a Brahman, mert mindent
+Az értelmes emberek, akik igyekeznek megszabadulni az  
+öregségtől és haláltól, menedéket keresnek a Hozzám irányuló  
+odaadó szolgálatban. Valójában ők a Brahman, mert mindent  
 tudnak a transzcendentális és a gyümölcsöző cselekedetekről.
 
 ##### 30. vers
-Akik úgy ismernek Engem, mint a Legfelsőbb Urat, mint az
-anyagi megnyilvánulás irányító elvét, a félistenek eredetét
-és az összes áldozat fenntartóját, azok szilárd elmével
-képesek megérteni és felismerni Engem még a halál
+Akik úgy ismernek Engem, mint a Legfelsőbb Urat, mint az  
+anyagi megnyilvánulás irányító elvét, a félistenek eredetét  
+és az összes áldozat fenntartóját, azok szilárd elmével  
+képesek megérteni és felismerni Engem még a halál  
 pillanatában is.
 
 
@@ -1741,161 +1741,161 @@ pillanatában is.
 #### A Legfelsőbb elérése
 
 ##### 1. vers
-Arjuna így kérdezett:
-Óh, Uram, óh, Legfelsőbb Személy, kérlek, magyarázd meg
-nekem, mi a Brahman! Mit értsek az önvaló s a gyümölcsöző
-cselekedetek alatt, mi ez az anyagi megnyilvánulás, és kik a
+Arjuna így kérdezett:  
+Óh, Uram, óh, Legfelsőbb Személy, kérlek, magyarázd meg  
+nekem, mi a Brahman! Mit értsek az önvaló s a gyümölcsöző  
+cselekedetek alatt, mi ez az anyagi megnyilvánulás, és kik a  
 félistenek?
 
 ##### 2. vers
-Óh, Madhusudhana, hogyan, és a test melyik részén él az
-áldozat Ura? Miként tudhatnak Rólad a halál pillanatában
+Óh, Madhusudhana, hogyan, és a test melyik részén él az  
+áldozat Ura? Miként tudhatnak Rólad a halál pillanatában  
 azok, akik odaadó szolgálatot végeznek?
 
 ##### 3. vers
-A Legfelsőbb Személy eképpen válaszolt:
-Az elpusztíthatatlan, transzcendentális élőlényt Brahmannak,
-örök természetét pedig önvalónak hívják. Az anyagi testek
-fejlődését szolgáló tetteket karmának, vagyis gyümölcsöző
+A Legfelsőbb Személy eképpen válaszolt:  
+Az elpusztíthatatlan, transzcendentális élőlényt Brahmannak,  
+örök természetét pedig önvalónak hívják. Az anyagi testek  
+fejlődését szolgáló tetteket karmának, vagyis gyümölcsöző  
 cselekedeteknek nevezik.
 
 ##### 4. vers
-A fizikai természetet végtelenül változékonynak ismerik. Az
-univerzum a Legfelsőbb Személy kozmikus formája, és Én
-vagyok az az Úr, akit a megtestesült lelkek szívében lakozó
+A fizikai természetet végtelenül változékonynak ismerik. Az  
+univerzum a Legfelsőbb Személy kozmikus formája, és Én  
+vagyok az az Úr, akit a megtestesült lelkek szívében lakozó  
 Felsőlélek képvisel.
 
 ##### 5. vers
-Bárki legyen is az, ha a halál pillanatában Rám emlékezve
-hagyja el testét, minden kétséget kizárva azonnal eléri az
+Bárki legyen is az, ha a halál pillanatában Rám emlékezve  
+hagyja el testét, minden kétséget kizárva azonnal eléri az  
 Én természetemet.
 
 ##### 6. vers
-Ki milyen létre gondol teste elhagyásakor, azt éri majd el
+Ki milyen létre gondol teste elhagyásakor, azt éri majd el  
 kétségtelenül.
 
 ##### 7. vers
-Ezért, óh, Arjuna, gondolj mindig Rám, s ezzel egyidejűleg
-hajtsd végre harcosi kötelességed! Tetteid Nekem ajánlva,
-elméd és értelmed rendületlenül Rám függesztve,
+Ezért, óh, Arjuna, gondolj mindig Rám, s ezzel egyidejűleg  
+hajtsd végre harcosi kötelességed! Tetteid Nekem ajánlva,  
+elméd és értelmed rendületlenül Rám függesztve,  
 kétségtelenül elérsz Engem.
 
 ##### 8. vers
-Óh, Partha, aki Rajtam, az Istenség Legfelsőbb Személyiségén
-meditál, elméjében állandóan Rám emlékezve, anélkül, hogy
+Óh, Partha, aki Rajtam, az Istenség Legfelsőbb Személyiségén  
+meditál, elméjében állandóan Rám emlékezve, anélkül, hogy  
 eltérne az útról, az biztosan elér Engem.
 
 ##### 9. vers
-Az ember úgy meditáljon a Legfelsőbb Személyen, mint
-olyanon, aki mindentudó, a legősibb irányító, kisebb a
-legkisebbnél, a fenntartója mindennek, túl van az anyagi
-felfogáson, felfoghatatlan, s mindig egy személy. Ragyogó Ő,
-mint a Nap, s mivel transzcendentális - túl van ezen az
+Az ember úgy meditáljon a Legfelsőbb Személyen, mint  
+olyanon, aki mindentudó, a legősibb irányító, kisebb a  
+legkisebbnél, a fenntartója mindennek, túl van az anyagi  
+felfogáson, felfoghatatlan, s mindig egy személy. Ragyogó Ő,  
+mint a Nap, s mivel transzcendentális - túl van ezen az  
 anyagi természeten.
 
 ##### 10. vers
-Aki a halál beálltakor életlevegőjét a két szemöldöke közé
-rögzíti, és teljes odaadással a Legfelsőbb Személyre
-emlékezik, az minden kétséget kizárva eljut az Istenség
+Aki a halál beálltakor életlevegőjét a két szemöldöke közé  
+rögzíti, és teljes odaadással a Legfelsőbb Személyre  
+emlékezik, az minden kétséget kizárva eljut az Istenség  
 Legfelsőbb Személyiségéhez.
 
 ##### 11. vers
-A Vedákat jól ismerő bölcsek, akik az omkarát vibrálják, és
-a lemondás rendjének nagy szentjei a Brahmanba hatolnak. Az
-ilyen tökéletesség után vágyakozók cölibátusban élnek. Most
-pedig röviden elmagyarázom neked azt a folyamatot, amely
+A Vedákat jól ismerő bölcsek, akik az omkarát vibrálják, és  
+a lemondás rendjének nagy szentjei a Brahmanba hatolnak. Az  
+ilyen tökéletesség után vágyakozók cölibátusban élnek. Most  
+pedig röviden elmagyarázom neked azt a folyamatot, amely  
 által felszabadulhat az ember.
 
 ##### 12. vers
-A yoga elkülönülést jelent mindennemű érzéki tevékenységtől.
-Gondolatait a szívre összpontosítva, érzékeinek összes
-ajtaját bezárva, életlevegőjét a koponya felső részében
+A yoga elkülönülést jelent mindennemű érzéki tevékenységtől.  
+Gondolatait a szívre összpontosítva, érzékeinek összes  
+ajtaját bezárva, életlevegőjét a koponya felső részében  
 tartva, az ember egyre jobban meggyökerezhet a yogában.
 
 ##### 13. vers
-Ha a yogát elsajátító és a betűk tökéletes kombinációjából
-eredő szent om szótagot vibráló személy teste elhagyásakor
-az Istenség Legfelsőbb Személyiségére gondol, akkor minden
+Ha a yogát elsajátító és a betűk tökéletes kombinációjából  
+eredő szent om szótagot vibráló személy teste elhagyásakor  
+az Istenség Legfelsőbb Személyiségére gondol, akkor minden  
 bizonnyal a lelki bolygókra jut.
 
 ##### 14. vers
-Óh, Prtha fia, aki szüntelenül Rám gondol, könnyen el is ér
-Engem, mert az ilyen személy állandóan odaadó szolgálatban
+Óh, Prtha fia, aki szüntelenül Rám gondol, könnyen el is ér  
+Engem, mert az ilyen személy állandóan odaadó szolgálatban  
 él.
 
 ##### 15. vers
-A nagy lelkek, az odaadó yogik, miután elértek Engem, soha
-többé nem térnek vissza ebbe a szenvedésekkel teli, átmeneti
+A nagy lelkek, az odaadó yogik, miután elértek Engem, soha  
+többé nem térnek vissza ebbe a szenvedésekkel teli, átmeneti  
 világba, mert már abszolút tökéletességhez jutottak.
 
 ##### 16. vers
-Az anyagi világ a legfelsőbb bolygótól a legalacsonyabbig a
-szenvedések helye, ahol az ismétlődő születés és halál
-uralkodik. Óh, Kunti fia, ha valaki eljut az Én
+Az anyagi világ a legfelsőbb bolygótól a legalacsonyabbig a  
+szenvedések helye, ahol az ismétlődő születés és halál  
+uralkodik. Óh, Kunti fia, ha valaki eljut az Én  
 környezetembe, annak sohasem kell újra születnie.
 
 ##### 17. vers
-Ezer földi korszak Brahma egy napja, másik ezer egy
+Ezer földi korszak Brahma egy napja, másik ezer egy  
 éjszakája.
 
 ##### 18. vers
-Brahma napjának hajnalán élőlények sokasága kel életre,
+Brahma napjának hajnalán élőlények sokasága kel életre,  
 alkonyán pedig minden megsemmisül.
 
 ##### 19. vers
-Óh, Partha, újra meg újra jön a nap, élénk lények tömegét
+Óh, Partha, újra meg újra jön a nap, élénk lények tömegét  
 hozván, de a következő éjszakára mind eltűnik reménytelenül.
 
 ##### 20. vers
-Ám létezik egy másik természet is, amely ehhez a
-megnyilvánult és megnyilvánulatlan anyaghoz képest örök,
-transzcendentális, páratlan és sohasem semmisül meg. Az a
-világ még akkor is megőrzi eredeti létét, amikor ebben a
+Ám létezik egy másik természet is, amely ehhez a  
+megnyilvánult és megnyilvánulatlan anyaghoz képest örök,  
+transzcendentális, páratlan és sohasem semmisül meg. Az a  
+világ még akkor is megőrzi eredeti létét, amikor ebben a  
 világban már minden megsemmisült.
 
 ##### 21. vers
-Azt a legfelsőbb világot megnyilvánulatlannak és
-múlhatatlannak hívják. Az az Én felsőbb hajlékom, s a
+Azt a legfelsőbb világot megnyilvánulatlannak és  
+múlhatatlannak hívják. Az az Én felsőbb hajlékom, s a  
 legvégső cél. Aki egyszer eljut oda, nem tér vissza többé.
 
 ##### 22. vers
-A mindenkinél hatalmasabb Istenség Legfelsőbb Személyiségét
-kizárólag vegyítetlen szeretettel lehet elérni. Habár lelki
-hajlékán tartózkodik, mégis áthat mindenen, és őbenne van
+A mindenkinél hatalmasabb Istenség Legfelsőbb Személyiségét  
+kizárólag vegyítetlen szeretettel lehet elérni. Habár lelki  
+hajlékán tartózkodik, mégis áthat mindenen, és őbenne van  
 minden, ami létezik.
 
 ##### 23. vers
-Óh, Bharaták legjobbja, most a különböző időpontokat
-magyarázom el neked, amikor az ember örökre, vagy pedig csak
+Óh, Bharaták legjobbja, most a különböző időpontokat  
+magyarázom el neked, amikor az ember örökre, vagy pedig csak  
 egy időre hagyja el ezt a világot.
 
 ##### 24. vers
-A Brahmant ismerők kedvező pillanatban, a tűzisten hatásának
-ideje alatt, fényben, a holdvilágos két hét és a Nap északi
+A Brahmant ismerők kedvező pillanatban, a tűzisten hatásának  
+ideje alatt, fényben, a holdvilágos két hét és a Nap északi  
 pályájának hat hónapja alatt távoznak el e világból.
 
 ##### 25. vers
-A yogi ismét visszatér, ha a füst, az éjszaka, a
-holdfogyatkozás két hete és a Nap déli pályájának hat
-hónapja alatt hagyja el ezt a világot, illetve ha a Holdra
+A yogi ismét visszatér, ha a füst, az éjszaka, a  
+holdfogyatkozás két hete és a Nap déli pályájának hat  
+hónapja alatt hagyja el ezt a világot, illetve ha a Holdra  
 jut.
 
 ##### 26. vers
-Az anyagi világegyetem elhagyásának két módjáról írnak a
-Vedák. Az egyik világosságban, a másik sötétségben történik.
-A világosságban távozó nem jön vissza, míg a sötétségben
+Az anyagi világegyetem elhagyásának két módjáról írnak a  
+Vedák. Az egyik világosságban, a másik sötétségben történik.  
+A világosságban távozó nem jön vissza, míg a sötétségben  
 elmenőnek vissza kell térnie.
 
 ##### 27. vers
-Óh, Arjuna, a bhakták ismerik e két utat, és sohasem
+Óh, Arjuna, a bhakták ismerik e két utat, és sohasem  
 kerülnek tévhitbe. Ezért gyökerezz szilárdan az odaadásban!
 
 ##### 28. vers
-Az odaadó szolgálat útját járó személy nincs megfosztva az
-olyan eredményektől, melyek különben a Vedák
-tanulmányozásából, az önsanyargató áldozatok végzéséből,
-adományozásból vagy filozófiai és gyümölcsöző
-cselekedetekből származnak. Ő végül is eljut a
+Az odaadó szolgálat útját járó személy nincs megfosztva az  
+olyan eredményektől, melyek különben a Vedák  
+tanulmányozásából, az önsanyargató áldozatok végzéséből,  
+adományozásból vagy filozófiai és gyümölcsöző  
+cselekedetekből származnak. Ő végül is eljut a  
 transzcendentális világba.
 
 
