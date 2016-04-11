@@ -3036,111 +3036,111 @@ boldogság az igazi természete.
 #### A Legfelsőbb Úrról szóló yoga
 
 ##### 1. vers
-Szólt a Magasztos Úr:
-Van egy banjanfa, amelynek gyökerei felfelé, ágai pedig
-lefelé nőnek, s melynek védikus himnuszok a levelei. Aki
+Szólt a Magasztos Úr:  
+Van egy banjanfa, amelynek gyökerei felfelé, ágai pedig  
+lefelé nőnek, s melynek védikus himnuszok a levelei. Aki  
 ismeri ezt a fát, az ismeri a Vedákat.
 
 ##### 2. vers
-E faágak le és fel egyaránt nőnek, s az anyagi természet
-három kötőereje táplálja őket. Rügyei az érzékek tárgyai.
-Vannak olyan gyökerei is, melyek lefelé nőnek, s ezek az
+E faágak le és fel egyaránt nőnek, s az anyagi természet  
+három kötőereje táplálja őket. Rügyei az érzékek tárgyai.  
+Vannak olyan gyökerei is, melyek lefelé nőnek, s ezek az  
 emberi társadalom gyümölcsöző cselekedeteihez kötődnek.
 
 ##### 3-4. vers
-Ebben a világban lehetetlen meglátni e fa igazi formáját.
-Senki sem tudja, hol kezdődik és hol végződik, vagy hol van
-az alapja. De nagy elszántsággal, az elkülönülés fegyverével
-le kell dönteni. Azután fel kell kutatni azt a helyet, ahova
-egyszer eljutván soha többé nem kell visszatérni, s ott meg
-kell hódolni az Istenség Legfelsőbb Személyisége előtt, aki
-mindennek a kezdete, s akiben időtlen idők óta jelen van
+Ebben a világban lehetetlen meglátni e fa igazi formáját.  
+Senki sem tudja, hol kezdődik és hol végződik, vagy hol van  
+az alapja. De nagy elszántsággal, az elkülönülés fegyverével  
+le kell dönteni. Azután fel kell kutatni azt a helyet, ahova  
+egyszer eljutván soha többé nem kell visszatérni, s ott meg  
+kell hódolni az Istenség Legfelsőbb Személyisége előtt, aki  
+mindennek a kezdete, s akiben időtlen idők óta jelen van  
 minden.
 
 ##### 5. vers
-Aki mentes az illúziótól, az áltekintélytől és a hamis
-társulástól, megértette az örökkévalót, és felhagyott minden
-anyagi vággyal, megszabadult a boldogság és az aggodalom
-kettősségétől, s tudja, miképpen kell meghódolnia a
+Aki mentes az illúziótól, az áltekintélytől és a hamis  
+társulástól, megértette az örökkévalót, és felhagyott minden  
+anyagi vággyal, megszabadult a boldogság és az aggodalom  
+kettősségétől, s tudja, miképpen kell meghódolnia a  
 Legfelsőbb Személy előtt - az eléri azt az örök birodalmat.
 
 ##### 6. vers
-Az Én legfelsőbb hajlékomat nem Nap, Hold, vagy
-elektromosság ragyogja be. És legyen az bárki, ha egyszer
+Az Én legfelsőbb hajlékomat nem Nap, Hold, vagy  
+elektromosság ragyogja be. És legyen az bárki, ha egyszer  
 eljut oda, többé már nem tér vissza az anyagi világba.
 
 ##### 7. vers
-Ebben a feltételekhez kötött világban az élőlények az Én
-örökkévaló, parányi részeim. Feltételekhez kötött létük
-miatt nagyon keményen küzdenek a hat érzékszervvel, melyhez
+Ebben a feltételekhez kötött világban az élőlények az Én  
+örökkévaló, parányi részeim. Feltételekhez kötött létük  
+miatt nagyon keményen küzdenek a hat érzékszervvel, melyhez  
 az elme is hozzátartozik.
 
 ##### 8. vers
-Az anyagi világban az élőlény különböző életfelfogásait úgy
-viszi egyik testből a másikba, mint ahogyan a szél szállítja
+Az anyagi világban az élőlény különböző életfelfogásait úgy  
+viszi egyik testből a másikba, mint ahogyan a szél szállítja  
 az illatot egyik helyről a másikra.
 
 ##### 9. vers
-Így az élőlény egy újabb durva-fizikai testet kap, bizonyos
-fajta füllel, nyelvvel, orral és érintőszervvel, melyek az
-elme körül csoportosulnak. Ily módon élvezi az érzékek
+Így az élőlény egy újabb durva-fizikai testet kap, bizonyos  
+fajta füllel, nyelvvel, orral és érintőszervvel, melyek az  
+elme körül csoportosulnak. Ily módon élvezi az érzékek  
 tárgyainak egy bizonyos csoportját.
 
 ##### 10. vers
-Az ostoba nem tudja megérteni, miképpen képes az élőlény
-elhagyni testét, s azt sem, miféle testből merít örömet az
-anyagi természet kötőerőinek varázsa alatt. De aki a tudás
+Az ostoba nem tudja megérteni, miképpen képes az élőlény  
+elhagyni testét, s azt sem, miféle testből merít örömet az  
+anyagi természet kötőerőinek varázsa alatt. De aki a tudás  
 szemével néz, az látja mindezt.
 
 ##### 11. vers
-A törekvő transzcendentalista, aki az önmegvalósításnak él,
-világosan látja mindezt. De az önmegvalósítás folyamatát
+A törekvő transzcendentalista, aki az önmegvalósításnak él,  
+világosan látja mindezt. De az önmegvalósítás folyamatát  
 mellőző nem képes erre, bármennyire próbálkozzék is.
 
 ##### 12. vers
-Tudd meg, hogy a világ sötétségét szétoszlató Nap ragyogása,
+Tudd meg, hogy a világ sötétségét szétoszlató Nap ragyogása,  
 a Holdnak sugárzása, tűznek fényessége is mind Tőlem árad.
 
 ##### 13. vers
-Behatolok minden bolygóba, s az Én energiám tartja őket
-pályájukon. Holddá válva Én látom el a zöldségeket az élet
+Behatolok minden bolygóba, s az Én energiám tartja őket  
+pályájukon. Holddá válva Én látom el a zöldségeket az élet  
 ízes levével.
 
 ##### 14. vers
-Én vagyok az emésztés tüze minden testben, és Én vagyok a
-ki- és bemenő életlevegő is, mely által a négyféle étel
+Én vagyok az emésztés tüze minden testben, és Én vagyok a  
+ki- és bemenő életlevegő is, mely által a négyféle étel  
 megemésztődik.
 
 ##### 15. vers
-Én minden szívben ott lakozom. Tőlem jön az emlékezet, a
-tudás és a feledékenység. Én vagyok az, akit az összes Veda
-közül ismerni kell, hiszen Én vagyok a Vedanta szerkesztője
+Én minden szívben ott lakozom. Tőlem jön az emlékezet, a  
+tudás és a feledékenység. Én vagyok az, akit az összes Veda  
+közül ismerni kell, hiszen Én vagyok a Vedanta szerkesztője  
 és a Vedák ismerője.
 
 ##### 16. vers
-Kétféle lény létezik: a gyarló és a tévedhetetlen. Az anyagi
-világban minden lény gyarló, a lelki világban pedig mindenki
+Kétféle lény létezik: a gyarló és a tévedhetetlen. Az anyagi  
+világban minden lény gyarló, a lelki világban pedig mindenki  
 tévedhetetlen.
 
 ##### 17. vers
-E kettőn kívül létezik a legnagyobb élő személyiség, Maga az
+E kettőn kívül létezik a legnagyobb élő személyiség, Maga az  
 Úr, aki behatolt a három világba, és fenntartja azokat.
 
 ##### 18. vers
-Miután Én transzcendentális vagyok, túl a gyarlón és a
-csalhatatlanon, s mert Én vagyok a leghatalmasabb, ezért a
-Legfelsőbb Személyként magasztalnak Engem a Vedák és a
+Miután Én transzcendentális vagyok, túl a gyarlón és a  
+csalhatatlanon, s mert Én vagyok a leghatalmasabb, ezért a  
+Legfelsőbb Személyként magasztalnak Engem a Vedák és a  
 világ.
 
 ##### 19. vers
-Óh, Bharata fia, legyen az bárki, mindentudóként kell
-ismerni, ha kétség nélkül tudja Rólam, hogy Én vagyok az
-Istenség Legfelsőbb Személyisége, s ezért teljesen
+Óh, Bharata fia, legyen az bárki, mindentudóként kell  
+ismerni, ha kétség nélkül tudja Rólam, hogy Én vagyok az  
+Istenség Legfelsőbb Személyisége, s ezért teljesen  
 lefoglalja magát az odaadó szolgálattal.
 
 ##### 20. vers
-Óh, Bűntelen, amit most feltártam előtted, az a Védikus
-Írások legmeghittebb része. Bárki is legyen, ha megérti ezt,
+Óh, Bűntelen, amit most feltártam előtted, az a Védikus  
+Írások legmeghittebb része. Bárki is legyen, ha megérti ezt,  
 bölccsé válik, és törekvését tökéletesség fogja koronázni.
 
 
