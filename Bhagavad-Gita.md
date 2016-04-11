@@ -34,13 +34,13 @@ A Bhagavad-Gítá korábbi fordítóinak célja általában az volt, hogy félre
 1. [Seregszemle a kuruksetrai csatamezőn](#hadiszemle-a-kuruksetrai-csatamezőn)  
 Az ellenséges seregek felsorakoztak. Arjuna a hős vitéz kedves rokonait, tanítóit, barátait pillantja meg mindkét oldalon, harci vágyban égve, készen arra, hogy életüket áldozzák a csatában. Együttérzés és bánat önti el, ereje elhagyja, elméjén zavar lesz úrrá, s nem akar többé harcolni.
 
-2. A Bhagavad-Gíta tartalmának összefoglalása  
+2. [A Bhagavad-Gíta tartalmának összefoglalása](#a-bhagavad-gíta-tartalmának-kivonata)  
 Arjuna meghódol az Úr Krisna előtt, és a tanítványa lesz. Krisna az átmeneti anyagi test és az örök szellemi lélek közötti alapvető különbségről tanítja őt. Beszél a lélekvándorlásról, a Legfelsőbb önzetlen szolgálatának természetéről és az önmegvalósítást elért ember jellemzőiről.
 
-3. Karma-yoga  
+3. [Karma-yoga](#karma-yoga)  
 Ebben az anyagi világban mindenkinek cselekednie kell. A tettek vagy az anyagi világhoz kötik az embert, vagy kiszabadítják onnan. A Legfelsőbb örömére önzetlenül cselekedve bárki felszabadulhat a karma (a tett és visszahatás) törvénye alól, és elsajátíthatja az önvalóról és a Legfelsőbbről szóló transzcendentális tudást.
 
-4. Transzcendentális tudás  
+4. [Transzcendentális tudás](#transzcendentális-tudás)  
 A transzcendentális tudás - a lélekre, Istenre és kettőjük kapcsolatára vonatkozó lelki tudás - megtisztít és felszabadít. Ez a tudás önzetlen odaadó cselekedetek (karma-yoga) gyümölcse. Az Úr feltárja a Gíta ősidőkbe visszanyúló történetét, beszél annak céljáról és jelentősségéről, hogy időről időre alászáll az anyagi világa, valamint elmondja, milyen fontos, hogy egy guruhoz, egy lelki megvalósítást elért tanítóhoz forduljunk.
 
 5. Karma-yoga - cselekvés Krisna-tudatban  
