@@ -3149,119 +3149,119 @@ bölccsé válik, és törekvését tökéletesség fogja koronázni.
 #### Az isteni és démoni természet
 
 ##### 1-3. vers
-A Magasztos Úr szólott:
-Félelemnélküliség, léttisztítás, a lelki tudás művelése,
-adományozás, önszabályozás, áldozatok végrehajtása, a Vedák
-tanulmányozása, vezeklés, egyszerűség, erőszak nélküliség,
-igazmondás, mentesség a haragtól, lemondás, békesség,
-idegenkedés a hibakereséstől, könyörületesség, mentesség a
-kapzsiságtól, kedvesség, szerénység, rendíthetetlen
-elszántság, életerő, megbocsátás, kitartás, tisztaság,
-valamint mentesség az irigységtől és a becsvágytól - óh,
-Bharata fia, ezek a transzcendentális tulajdonságok az
+A Magasztos Úr szólott:  
+Félelemnélküliség, léttisztítás, a lelki tudás művelése,  
+adományozás, önszabályozás, áldozatok végrehajtása, a Vedák  
+tanulmányozása, vezeklés, egyszerűség, erőszak nélküliség,  
+igazmondás, mentesség a haragtól, lemondás, békesség,  
+idegenkedés a hibakereséstől, könyörületesség, mentesség a  
+kapzsiságtól, kedvesség, szerénység, rendíthetetlen  
+elszántság, életerő, megbocsátás, kitartás, tisztaság,  
+valamint mentesség az irigységtől és a becsvágytól - óh,  
+Bharata fia, ezek a transzcendentális tulajdonságok az  
 isteni természettel megáldott ember jellemzői.
 
 ##### 4. vers
-Óh, Partha, büszkeség, dölyf, beképzeltség, düh, durvaság és
+Óh, Partha, büszkeség, dölyf, beképzeltség, düh, durvaság és  
 tudatlanság tartozik a démoni természethez.
 
 ##### 5. vers
-A transzcendentális tulajdonságok elősegítik a
-felszabadulást, míg a démoniak kötöttséget eredményeznek. Ne
+A transzcendentális tulajdonságok elősegítik a  
+felszabadulást, míg a démoniak kötöttséget eredményeznek. Ne  
 aggódj, óh, Pandava, mert te isteni jellemmel születtél!
 
 ##### 6. vers
-Óh, Prtha fia, kétféle teremtett lény van ebben a világban:
-az egyiket isteninek, a másikat démoninak hívják. Az isteni
-tulajdonságokról már bővebben szóltam. Hallj most Tőlem a
+Óh, Prtha fia, kétféle teremtett lény van ebben a világban:  
+az egyiket isteninek, a másikat démoninak hívják. Az isteni  
+tulajdonságokról már bővebben szóltam. Hallj most Tőlem a  
 démoniról is!
 
 ##### 7. vers
-A démoni emberek nem tudják, mi a helyes és mi a helytelen
-cselekvés. Sem tisztaság, sem helyes viselkedés, sem pedig
+A démoni emberek nem tudják, mi a helyes és mi a helytelen  
+cselekvés. Sem tisztaság, sem helyes viselkedés, sem pedig  
 igazlelkűség nem található bennük.
 
 ##### 8. vers
-Azt mondják, hogy ez a világ irreális, s nincsen alapja, sem
-irányító Istene. Szerintük a nemi vágy hozta létre, semmi
+Azt mondják, hogy ez a világ irreális, s nincsen alapja, sem  
+irányító Istene. Szerintük a nemi vágy hozta létre, semmi  
 más.
 
 ##### 9. vers
-Az efféle végkövetkeztetéseket követve, az énüket vesztett,
-értelmetlen, démoni emberek kedvezőtlen, szörnyű tettekbe
+Az efféle végkövetkeztetéseket követve, az énüket vesztett,  
+értelmetlen, démoni emberek kedvezőtlen, szörnyű tettekbe  
 fognak, hogy romba döntsék a világot.
 
 ##### 10. vers
-A kielégíthetetlen kéjnél, a gőgnél és hamis tekintélynél
-keresnek menedéket, a múlandó vonzza őket, s ily módon az
-illúzió hatása alatt mindig tisztátlan munkára tesznek
+A kielégíthetetlen kéjnél, a gőgnél és hamis tekintélynél  
+keresnek menedéket, a múlandó vonzza őket, s ily módon az  
+illúzió hatása alatt mindig tisztátlan munkára tesznek  
 fogadalmat.
 
 ##### 11-12. vers
-Hiszik, hogy az élet végéig tartó érzékkielégítés az emberi
-civilizáció legfontosabb szüksége, ezért aggodalmuk nem
-ismer határt. Sok-sok ezer vágy, kéj és düh köti őket, s az
-érzékek kielégítéséhez szükséges pénzt illegális eszközökkel
+Hiszik, hogy az élet végéig tartó érzékkielégítés az emberi  
+civilizáció legfontosabb szüksége, ezért aggodalmuk nem  
+ismer határt. Sok-sok ezer vágy, kéj és düh köti őket, s az  
+érzékek kielégítéséhez szükséges pénzt illegális eszközökkel  
 szerzik meg.
 
 ##### 13-15. vers
-A démoni ember így gondolkodik: "Milyen nagy vagyonnal
-rendelkezem! A terveim szerint ez még egyre gyarapodni fog.
-Mind az enyém most, de a jövőben még több lesz... Volt egy
-ellenségem, de már megöltem. Előbb-utóbb a többivel is
-elbánok majd... Én vagyok mindennek az ura, mindennek az
-élvezője, tökéletes, hatalmas és boldog. Én vagyok a
-leggazdagabb, és arisztokratikus családból származom. Nincs
-nálam hatalmasabb és boldogabb... Áldozatokat hajtok majd
-végre, valamennyit adományozni is fogok, így élvezem majd az
+A démoni ember így gondolkodik: "Milyen nagy vagyonnal  
+rendelkezem! A terveim szerint ez még egyre gyarapodni fog.  
+Mind az enyém most, de a jövőben még több lesz... Volt egy  
+ellenségem, de már megöltem. Előbb-utóbb a többivel is  
+elbánok majd... Én vagyok mindennek az ura, mindennek az  
+élvezője, tökéletes, hatalmas és boldog. Én vagyok a  
+leggazdagabb, és arisztokratikus családból származom. Nincs  
+nálam hatalmasabb és boldogabb... Áldozatokat hajtok majd  
+végre, valamennyit adományozni is fogok, így élvezem majd az  
 életet." Ily módon téveszti meg a démont a tudatlanság.
 
 ##### 16. vers
-A számtalan aggodalomtól megzavarodva, a káprázatok
-szövevényébe keveredve, erősen kötődnek az érzéki örömökhöz,
+A számtalan aggodalomtól megzavarodva, a káprázatok  
+szövevényébe keveredve, erősen kötődnek az érzéki örömökhöz,  
 és ocsmány pokolba csúsznak.
 
 ##### 17. vers
-Önelégültek, örökké szemtelenek, s a vagyontól és a hamis
-tekintélytől megmámorosodván néha áldozatokat hajtanak
-végre, de csak névleg, mellőzvén az Írások minden előírását
+Önelégültek, örökké szemtelenek, s a vagyontól és a hamis  
+tekintélytől megmámorosodván néha áldozatokat hajtanak  
+végre, de csak névleg, mellőzvén az Írások minden előírását  
 és szabályát.
 
 ##### 18. vers
-A démonok a hamis egonál, a hatalomnál, dölyfnél, bujaságnál
-és dühnél keresnek menedéket, gyalázzák az igazi vallást, és
-irigyek lesznek az Istenség Legfelsőbb Személyiségére, aki
+A démonok a hamis egonál, a hatalomnál, dölyfnél, bujaságnál  
+és dühnél keresnek menedéket, gyalázzák az igazi vallást, és  
+irigyek lesznek az Istenség Legfelsőbb Személyiségére, aki  
 nemcsak mások testében, de az övékében is ott lakozik.
 
 ##### 19. vers
-Az anyagi lét óceánjába, a különféle démoni fajok méhébe
-dobom a gyűlölködőket és gonoszokat, akik az emberiség alját
+Az anyagi lét óceánjába, a különféle démoni fajok méhébe  
+dobom a gyűlölködőket és gonoszokat, akik az emberiség alját  
 képezik.
 
 ##### 20. vers
-Óh, Kunti fia, ezek a balgák ismételten démoni fajokban
-fognak megszületni, Engem sohasem érhetnek el. Fokozatosan a
+Óh, Kunti fia, ezek a balgák ismételten démoni fajokban  
+fognak megszületni, Engem sohasem érhetnek el. Fokozatosan a  
 lét legförtelmesebb fajtájába süllyednek.
 
 ##### 21. vers
-Három kapu vezet a pokolba: kéj, düh és kapzsiság. Minden
-józan embernek meg kell válnia tőlük, mert a lélek
+Három kapu vezet a pokolba: kéj, düh és kapzsiság. Minden  
+józan embernek meg kell válnia tőlük, mert a lélek  
 degradálásához vezetnek.
 
 ##### 22. vers
-Óh, Kaunteya, aki kikerülte a tudatlanság e három kapuját,
-az olyan tettekbe fog, melyek elősegítik az önmegvalósítást.
+Óh, Kaunteya, aki kikerülte a tudatlanság e három kapuját,  
+az olyan tettekbe fog, melyek elősegítik az önmegvalósítást.  
 Ily módon fokozatosan eléri a legvégső célt.
 
 ##### 23. vers
-De aki félredobja az Írások szabályozó parancsait, és a
-kéjtől indítva a saját szeszélyeire hallgatva cselekszik, az
-sem a tökéletességet, sem a boldogságot, sem pedig a
+De aki félredobja az Írások szabályozó parancsait, és a  
+kéjtől indítva a saját szeszélyeire hallgatva cselekszik, az  
+sem a tökéletességet, sem a boldogságot, sem pedig a  
 legvégső célt nem éri el.
 
 ##### 24. vers
-Az Írások irányadásából kell megérteni, hogy mi a kötelesség
-és mi nem. Miután az ember megismerte e szabályokat,
+Az Írások irányadásából kell megérteni, hogy mi a kötelesség  
+és mi nem. Miután az ember megismerte e szabályokat,  
 cselekedjék úgy, hogy fokozatosan fejlődhessék általuk.
 
 
