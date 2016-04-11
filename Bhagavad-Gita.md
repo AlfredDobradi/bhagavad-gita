@@ -3811,6 +3811,7 @@ Bárhol is legyen Krsna, a misztikák mestere, és Arjuna, a
 legkiválóbb íjász, ott biztos a bőség, a győzelem, a  
 rendkívüli erő és az erény. Ez az én véleményem.
 
+---
 
 ###### Nélküliség  
 A nyomtatott kiadásban kimaradt a "nélküliség" szó (az elektronikus változat szerkesztője)
