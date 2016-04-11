@@ -19,15 +19,20 @@ A Bhagavad-Gítá korábbi fordítóinak célja általában az volt, hogy félre
 
 ### A Bhagavad-Gíta öt fő témája
 
-1. Ísvara / a Legfelsőbb Irányító. A Bhagavad-Gíta így nevezi a legnagyobb hatalommal rendelkező lényt, aki minden dolog birtokosa és irányítója - az általunk megszokott kifejezésmóddal élve maga Isten. Azt olvashatjuk Róla, hogy Ő egy örök személy, és Ő az anyagi világ, valamint az élőlények forrása. Bár van formája, ez a forma nem anyagi, hanem lelki, s ezért az idő nem befolyásolhatja. Helyzetét a legfelsőbb tudatosság jellemzi. Annak ellenére, hogy egy bizonyos helyen, eredeti lakhelyén tartózkodik, minden élőlény testéről tudatos, a Felsőlélek formájában ott él minden élőlény szívében. Korlátlan energiákkal rendelkezik, az Ő energiáinak azonban nincsen forrása - azaz Saját Maga a forrás.
+1. Ísvara / a Legfelsőbb Irányító.  
+A Bhagavad-Gíta így nevezi a legnagyobb hatalommal rendelkező lényt, aki minden dolog birtokosa és irányítója - az általunk megszokott kifejezésmóddal élve maga Isten. Azt olvashatjuk Róla, hogy Ő egy örök személy, és Ő az anyagi világ, valamint az élőlények forrása. Bár van formája, ez a forma nem anyagi, hanem lelki, s ezért az idő nem befolyásolhatja. Helyzetét a legfelsőbb tudatosság jellemzi. Annak ellenére, hogy egy bizonyos helyen, eredeti lakhelyén tartózkodik, minden élőlény testéről tudatos, a Felsőlélek formájában ott él minden élőlény szívében. Korlátlan energiákkal rendelkezik, az Ő energiáinak azonban nincsen forrása - azaz Saját Maga a forrás.
 
-2. Dzsíva / az élőlények, a lelkek. Szintén örökek, ahogyan a Legfelsőbb Lélek is az. Azonban ők a Legfelsőbb irányítása alatt állnak, vagyis nem függetlenek. Minőség tekintetében ugyanolyanok, mint a Legfelsőbb Lélek, vagyis lelkiek, azonban mennyiségileg, energiájukat tekintve különböznek Tőle. Parányi mértékben megvannak bennük a Legfelsőbb Úr tulajdonságai. Tudatosak, de tudatuk nem a legmagasabb rendű, hiszen csak saját testükön belül tudatosak. Megkülönbözteti őket az Ísvarától az is, hogy beszennyezheti őket az anyag. Vagyis az anyagi világban anyagi testet kapnak, elfelejtkeznek eredeti lelki létükről, és tetteik lekötik őket ebbe a világba.
+2. Dzsíva / az élőlények, a lelkek.  
+Szintén örökek, ahogyan a Legfelsőbb Lélek is az. Azonban ők a Legfelsőbb irányítása alatt állnak, vagyis nem függetlenek. Minőség tekintetében ugyanolyanok, mint a Legfelsőbb Lélek, vagyis lelkiek, azonban mennyiségileg, energiájukat tekintve különböznek Tőle. Parányi mértékben megvannak bennük a Legfelsőbb Úr tulajdonságai. Tudatosak, de tudatuk nem a legmagasabb rendű, hiszen csak saját testükön belül tudatosak. Megkülönbözteti őket az Ísvarától az is, hogy beszennyezheti őket az anyag. Vagyis az anyagi világban anyagi testet kapnak, elfelejtkeznek eredeti lelki létükről, és tetteik lekötik őket ebbe a világba.
 
-3. Prakriti / az anyagi természet. Az anyagi világot a Bhagavad-Gítá szintén mint a Legfelsőbb Úr egyik energiáját határozza meg. Ez az energia alsóbbrendű, mint az egyéni lelkek, és megnyilvánulása nem örök - azaz van amikor látható, és van amikor nem. Időközönként megteremtődik, fennáll egy ideig, majd elpusztul, s később újra megteremtődik. Az egyéni lelkekkel ellentétben nem tudatos, és önmagában tétlen. Az Ísvara irányítása alatt áll. Ez az energia alkotja az összes tárgyat az anyagi világban, és az egyéni lelkek evilági testeit is.
+3. Prakriti / az anyagi természet.  
+Az anyagi világot a Bhagavad-Gítá szintén mint a Legfelsőbb Úr egyik energiáját határozza meg. Ez az energia alsóbbrendű, mint az egyéni lelkek, és megnyilvánulása nem örök - azaz van amikor látható, és van amikor nem. Időközönként megteremtődik, fennáll egy ideig, majd elpusztul, s később újra megteremtődik. Az egyéni lelkekkel ellentétben nem tudatos, és önmagában tétlen. Az Ísvara irányítása alatt áll. Ez az energia alkotja az összes tárgyat az anyagi világban, és az egyéni lelkek evilági testeit is.
 
-4. Kála / idő. Szintén a Legfelsőbb energiája, amelynek az anyagi energia működésében van szerepe. Hatása alatt tartja az anyagi energiában élő lelkeket. Működésének következtében az anyagi világban minden létrejön, fennáll egy ideig, majd elpusztul - ez alól semmi sem kivétel, beleértve az élőlények anyagi testeit.
+4. Kála / idő.  
+Szintén a Legfelsőbb energiája, amelynek az anyagi energia működésében van szerepe. Hatása alatt tartja az anyagi energiában élő lelkeket. Működésének következtében az anyagi világban minden létrejön, fennáll egy ideig, majd elpusztul - ez alól semmi sem kivétel, beleértve az élőlények anyagi testeit.
 
-5. Karma / tett. Ez a kifejezés egyaránt magában foglalja az élőlények tetteit, és az azok következményeit. Az élőlények tettei minden esetben visszahatással járnak. Ha valaki elkövet egy jó tettet, annak eredménye a jövőben valami anyagi boldogság lesz (gazdagság, egészség, hírnév stb.), míg a rossz tettek, bűnök eredménye az elkövetett tettel arányos szenvedés (betegségek, anyagi problémák, halál stb.). A karma életeken át kíséri az élőlényt, vagyis az egyik életben elkövetett tettek kihatnak az illető következő életeinek eseményeire. Az elkövetett cselekedetek tehát tulajdonképpen láncok, amelyek az anyagi világhoz kötözik az élőlényt.
+5. Karma / tett.  
+Ez a kifejezés egyaránt magában foglalja az élőlények tetteit, és az azok következményeit. Az élőlények tettei minden esetben visszahatással járnak. Ha valaki elkövet egy jó tettet, annak eredménye a jövőben valami anyagi boldogság lesz (gazdagság, egészség, hírnév stb.), míg a rossz tettek, bűnök eredménye az elkövetett tettel arányos szenvedés (betegségek, anyagi problémák, halál stb.). A karma életeken át kíséri az élőlényt, vagyis az egyik életben elkövetett tettek kihatnak az illető következő életeinek eseményeire. Az elkövetett cselekedetek tehát tulajdonképpen láncok, amelyek az anyagi világhoz kötözik az élőlényt.
 
 ### Tartalomjegyzék
 
@@ -43,46 +48,46 @@ Ebben az anyagi világban mindenkinek cselekednie kell. A tettek vagy az anyagi 
 4. [Transzcendentális tudás](#transzcendentális-tudás)  
 A transzcendentális tudás - a lélekre, Istenre és kettőjük kapcsolatára vonatkozó lelki tudás - megtisztít és felszabadít. Ez a tudás önzetlen odaadó cselekedetek (karma-yoga) gyümölcse. Az Úr feltárja a Gíta ősidőkbe visszanyúló történetét, beszél annak céljáról és jelentősségéről, hogy időről időre alászáll az anyagi világa, valamint elmondja, milyen fontos, hogy egy guruhoz, egy lelki megvalósítást elért tanítóhoz forduljunk.
 
-5. [Karma-yoga - cselekvés Krisna-tudatban](#karma-yoga---cselekvés-a-krsna-tudatban)
+5. [Karma-yoga - cselekvés Krisna-tudatban](#karma-yoga---cselekvés-a-krsna-tudatban)  
 Minden tettét végrehajtva, ám bensőjében azok gyümölcséről lemondva a transzcendentális tudás tüzében megtisztult bölcs eléri a békét, megszabadul a ragaszkodástól, lelki látásmódra tesz szert és boldog lesz.
 
-6. [Dhyana-yoga](#dhyana-yoga)
+6. [Dhyana-yoga](#dhyana-yoga)  
 Az astanga-yoga mechanikus meditációjának gyakorlásával az ember képes uralkodni elméje és érzékei fölött, figyelmét pedig Paramátmára (a Felsőlélekre, az Úr szívben lakozó formájára) összpontosíthatja. Ez a yoga-folyamat a samadhiban tetőzik, amikor az ember tudata teljesen a Legfelsőbbe merül.
 
-7. [Az Abszolútról szóló tudás](#az-abszolútról-szóló-tudás)
+7. [Az Abszolútról szóló tudás](#az-abszolútról-szóló-tudás)  
 Az Úr Krisna a Legfelsőbb Igazság, a legfelsőbb ok, valamint minden anyagi és lelki dolog fenntartó ereje. Az emelkedett lelkek odaadóan meghódolnak Neki, míg az istentagadók elméjét másféle imádat köti le.
 
-8. [A Legfelsőbb elérése](#a-legfelsőbb-elérése)
+8. [A Legfelsőbb elérése](#a-legfelsőbb-elérése)  
 Ha valaki élete során, különösen pedig a halál pillanatában nagy odaadással az Úr Krisnára emlékezik, eljuthat az Ő legfelsőbb hajlékára, túl ezen az anyagi világon.
 
-9. [A legbizalmasabb tudás](#a-legbizalmasabb-tudás)
+9. [A legbizalmasabb tudás](#a-legbizalmasabb-tudás)  
 Az Úr Krisna a Legfelsőbb Isten, az imádat legfelsőbb középpontja. A lélek a transzcendentális szolgálaton (a bhaktin) keresztül örök kapcsolatban áll Vele. Tiszta odaadását felébresztve visszatérhet Hozzá a lelki világba.
 
-10. [Az Abszolút fennsége](#az-abszolút-fensége)
+10. [Az Abszolút fennsége](#az-abszolút-fensége)  
 Az anyagi és a lelki világban minden csodálatos megnyilvánulás, erő nagyság és fennség csupán Krisna isteni energiáinak és fennségének töredéke. Mint minden ok legfelsőbb oka, minden létező fenntartója és lényege, Krisna minden teremtett lény számára a legfelsőbb imádandó személy.
 
-11. [Az univerzális forma](#az-univerzális-forma)
+11. [Az univerzális forma](#az-univerzális-forma)  
 Az Úr Krisna isteni szemekkel ajándékozta meg Arjunát, s megmutatta neki látványos, végtelen formáját, a kozmikus univerzumot. Ezzel végleg bizonyosságot tesz isteni mivoltáról. Elmondja, hogy szépséges emberi formája az Istenség eredeti formája, melyet csakis az odaadó szolgálaton keresztül lehet megpillantani.
 
-12. [Odaadó szolgálat](#az-odaadó-szolgálat)
+12. [Odaadó szolgálat](#az-odaadó-szolgálat)  
 A bhakti-yoga, az Úr Krisna tiszta odaadó szolgálata a legmagasabb rendű és legmegfelelőbb eszköz a Krisna iránti tiszta szeretet eléréséhez, ami a lelki élet végső célja. Akik ezt a magasztos utat járják, isteni természetre tesznek szert.
 
-13. [A természet, az élvező és a tudat](#a-prakrti-a-purusa-és-a-tudat)
+13. [A természet, az élvező és a tudat](#a-prakrti-a-purusa-és-a-tudat)  
 Aki megérti a testet, a lelket és a fölöttük álló Felsőlélek közötti különbséget, kiszabadul ebből az anyagi világból.
 
-14. [A természet három kötőereje](#az-anyagi-természet-három-kötőereje)
+14. [A természet három kötőereje](#az-anyagi-természet-három-kötőereje)  
 Minden testet öltött lélek a természet három kötőerejének, a jóság, a szenvedély és a tudatlanság kötőerejének a irányítása alatt áll. Az Úr Krisna megmagyarázza, mik ezek a kötőerők, hogyan hatnak ránk, hogyan lehet legyőzni őket, valamint elmondja mi jellemzi azt az embert, aki elérte a transzcendentális állapotot.
 
-15. [A Legfelsőbb Személy elérésének yogája](#a-legfelsőbb-Úrról-szóló-yoga)
+15. [A Legfelsőbb Személy elérésének yogája](#a-legfelsőbb-Úrról-szóló-yoga)  
 A védikus tudás végső célja, hogy megszabaduljunk a kötelékektől, melyek az anyagi világhoz fűznek bennünket, s megértsük, hogy az Úr Krisna az Istenség Legfelsőbb Személyisége. Aki megérti, kicsoda Isten, az meghódol Előtte, s odaadó szolgálatához lát.
 
-16. [Az isteni és a démoni természet](#az-isteni-és-démoni-természet)
+16. [Az isteni és a démoni természet](#az-isteni-és-démoni-természet)  
 Akik démonikus tulajdonságokkal rendelkeznek, és a szentírások parancsait figyelmen kívül hagyva, saját szeszélyeiket követve élnek, alacsonyabb rendű fajokban születnek újjá, és létük az anyag börtönében tovább folytatódik. Akik azonban isteni tulajdonságok birtokában vannak, és a szentírások szabályainak engedelmeskedve élnek, lassanként lelki tökéletességre tesznek szert.
 
-17. [A hit fajtái](#a-háromféle-hit)
+17. [A hit fajtái](#a-háromféle-hit)  
 Az anyagi természet három kötőerejének megfelelően háromféle hit van, amely e kötőerőkből származik. Azoknak a tettei, akiknek hitét a szenvedély és a tudatlanság jellemzi, csupán átmeneti, anyagi eredményekkel járnak, míg a jóságban, a szentírások parancsait követve végrehajtott tettek megtisztítják a szívet, és az Úr Krisnába vetett tiszta hithez, valamint az Iránta érzett odaadáshoz vezetnek.
 
-18. [Végkövetkeztetés - a tökéletes lemondás](#végkövetkeztetés---a-tökéletes-lemondás)
+18. [Végkövetkeztetés - a tökéletes lemondás](#végkövetkeztetés---a-tökéletes-lemondás)  
 Krisna elmagyarázza a lemondás jelentését, és arról beszél, milyen hatással vannak a természet kötőerői az ember tudatára és tetteire. Elmondja, mi a Brahman-megvalósítás, beszél a Bhagavad-Gíta dicsőségéről és végkövetkeztetéséről: a vallás legmagasabbrendű formája az Úr Krisna előtti abszolút, feltétlen, szeretetteljes meghódolás, ami megszabadítja az embert minden bűntől, teljes megvilágosodással áldja meg, és képessé teszi arra, hogy visszatérjen Krisna örök lelki hajlékára.
 
 ### Első fejezet
