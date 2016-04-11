@@ -1336,242 +1336,242 @@ jótevője.
 #### Dhyana-yoga
 
 ##### 1. vers
-A Magasztos Úr szólt:
-Aki kötelessége szerint cselekszik, ám nem vonzódik munkája
-gyümölcseihez, az a lemondott élet rendjében él. Ő az igazi
+A Magasztos Úr szólt:  
+Aki kötelessége szerint cselekszik, ám nem vonzódik munkája  
+gyümölcseihez, az a lemondott élet rendjében él. Ő az igazi  
 misztikus, nem a tüzet nem gyújtó és munkáját nem végző.
 
 ##### 2. vers
-Amit lemondásnak nevezünk, az nem más, mint yoga -
-összekapcsolódás a Legfelsőbbel; ugyanis senki sem lehet
-yogi addig, míg meg nem válik az érzékek kielégítésének
+Amit lemondásnak nevezünk, az nem más, mint yoga -  
+összekapcsolódás a Legfelsőbbel; ugyanis senki sem lehet  
+yogi addig, míg meg nem válik az érzékek kielégítésének  
 vágyától.
 
 ##### 3. vers
-Aki még csak kezdő a nyolcfokú yoga gyakorlásában, annak a
-munkát ajánlják; a yogát már elért személynek pedig az
+Aki még csak kezdő a nyolcfokú yoga gyakorlásában, annak a  
+munkát ajánlják; a yogát már elért személynek pedig az  
 összes anyagi tettről való lemondást.
 
 ##### 4. vers
-Akkor éri el a yogát valaki, amikor az összes anyagi
-kívánságát feladván sem érzékei kielégítésére nem törekszik,
+Akkor éri el a yogát valaki, amikor az összes anyagi  
+kívánságát feladván sem érzékei kielégítésére nem törekszik,  
 sem pedig gyümölcsöző cselekedetekkel nem foglalkozik.
 
 ##### 5. vers
-Az embernek emelkednie kell elméje segítségével, nem pedig
-degradálódnia. Az elme barátja, vagy ellensége is lehet a
+Az embernek emelkednie kell elméje segítségével, nem pedig  
+degradálódnia. Az elme barátja, vagy ellensége is lehet a  
 leigázott léleknek.
 
 ##### 6. vers
-A legyőzött elme a legjobb baráttá, a nem fegyelmezett pedig
+A legyőzött elme a legjobb baráttá, a nem fegyelmezett pedig  
 a legnagyobb ellenséggé válik.
 
 ##### 7. vers
-Aki legyőzte elméjét, az nemcsak nyugalomhoz jutott, de
-elérte már a Felsőlelket is. Az ilyen ember számára a
-boldogság vagy szenvedés, hideg vagy meleg, tisztelet vagy
+Aki legyőzte elméjét, az nemcsak nyugalomhoz jutott, de  
+elérte már a Felsőlelket is. Az ilyen ember számára a  
+boldogság vagy szenvedés, hideg vagy meleg, tisztelet vagy  
 gyalázat mind egyforma.
 
 ##### 8. vers
-Csak akkor szilárd valaki az önmegvalósításban, és csak
-akkor hívják yoginak, ha teljesen elégedett elért tudásával
-és annak megvalósításával. Az ilyen ember transzcendenciában
-van és önfegyelmezett. Mindent egyenlőnek lát, legyen az kő,
+Csak akkor szilárd valaki az önmegvalósításban, és csak  
+akkor hívják yoginak, ha teljesen elégedett elért tudásával  
+és annak megvalósításával. Az ilyen ember transzcendenciában  
+van és önfegyelmezett. Mindent egyenlőnek lát, legyen az kő,  
 kristály vagy arany.
 
 ##### 9. vers
-Aki a baráttal, az ellenséggel, a becsületes jóakaróval, a
-gyűlölttel, a féltékennyel, a jámborral, a bűnössel, a
-közvetítővel és a pártatlannal is, tehát mindenkivel
+Aki a baráttal, az ellenséggel, a becsületes jóakaróval, a  
+gyűlölttel, a féltékennyel, a jámborral, a bűnössel, a  
+közvetítővel és a pártatlannal is, tehát mindenkivel  
 egyenlően bánik - az még fejlettebb.
 
 ##### 10. vers
-A transzcendentalistának mindig arra kell törekednie, hogy
-elméjét a Legfelsőbb Lélekre rögzítse. Egyedül, elvont
-helyen kell élnie, mindig figyelmesen szabályozva elméjét.
+A transzcendentalistának mindig arra kell törekednie, hogy  
+elméjét a Legfelsőbb Lélekre rögzítse. Egyedül, elvont  
+helyen kell élnie, mindig figyelmesen szabályozva elméjét.  
 Meg kell szabadulnia minden vágytól és birtoklásérzettől.
 
 ##### 11-12. vers
-A yoga gyakorlásához szükséges, hogy az ember szent és
-elvont környezetet keressen magának. Terítsen kusa-szénát a
-földre, amit előbb őzbőrrel, majd ruhadarabbal fedjen le. Az
-ülés ne legyen sem túl magas, sem túl alacsony. Ezután a
-yogi vegyen fel egy stabil, mozdulatlan ülőhelyzetet, s
-gyakorolja a yogát elméje, valamint érzékei szabályozásával
+A yoga gyakorlásához szükséges, hogy az ember szent és  
+elvont környezetet keressen magának. Terítsen kusa-szénát a  
+földre, amit előbb őzbőrrel, majd ruhadarabbal fedjen le. Az  
+ülés ne legyen sem túl magas, sem túl alacsony. Ezután a  
+yogi vegyen fel egy stabil, mozdulatlan ülőhelyzetet, s  
+gyakorolja a yogát elméje, valamint érzékei szabályozásával  
 - tisztítva szívét, s egy pontra rögzítve elméjét.
 
 ##### 13-14. vers
-Testét, nyakát, és fejét egyenes vonalban tartsa, szemét
-orrhegyére szögezze rendületlenül! Ily módon - nyugodt és
-szabályozott elmével, félelemtől felszabadultan, a nemi
-élettől teljesen mentesen - szívében Rajtam meditáljon, s
+Testét, nyakát, és fejét egyenes vonalban tartsa, szemét  
+orrhegyére szögezze rendületlenül! Ily módon - nyugodt és  
+szabályozott elmével, félelemtől felszabadultan, a nemi  
+élettől teljesen mentesen - szívében Rajtam meditáljon, s  
 Engem tegyen élete végső céljának!
 
 ##### 15. vers
-A testét, tetteit és elméjét ily módon szabályozó, az anyagi
-létet megszüntető misztikus transzcendentalista Isten
+A testét, tetteit és elméjét ily módon szabályozó, az anyagi  
+létet megszüntető misztikus transzcendentalista Isten  
 birodalmát [Krsna hajlékát] éri el.
 
 ##### 16. vers
-Óh, Arjuna, az nem lehet yogi, aki túl sokat vagy túl
+Óh, Arjuna, az nem lehet yogi, aki túl sokat vagy túl  
 keveset eszik, vagy alszik.
 
 ##### 17. vers
-Akinek mérsékelt az evése, alvása, munkája és pihenése, az
-minden anyagi fájdalmat képes megszüntetni a yoga gyakorlása
+Akinek mérsékelt az evése, alvása, munkája és pihenése, az  
+minden anyagi fájdalmat képes megszüntetni a yoga gyakorlása  
 által.
 
 ##### 18. vers
-Úgy mondják, ha a yogi elméje a Transzcendensben gyökerezik,
-s képes azt a gyakorlatok által fegyelmezni, akkor elérte a
+Úgy mondják, ha a yogi elméje a Transzcendensben gyökerezik,  
+s képes azt a gyakorlatok által fegyelmezni, akkor elérte a  
 yoga célját.
 
 ##### 19. vers
-Ahogyan szélcsendes helyen sem lobog a gyertyaláng, úgy az
-elméjét szabályozó yogi is mindig rendületlen marad a
+Ahogyan szélcsendes helyen sem lobog a gyertyaláng, úgy az  
+elméjét szabályozó yogi is mindig rendületlen marad a  
 Transzcendensen való meditálásában.
 
 ##### 20-23. vers
-A tökéletesség szintjét samadhinak, vagy transznak hívják.
-Ilyenkor a yoga gyakorlása által az ember elméje minden
-anyagi szellemi tevékenységtől mentes. Jellemzője, hogy a
-yogi ebben az állapotban tiszta elméje segítségével
-megláthatja önvalóját, s örömet, élvezetet tud meríteni
-abból. Ezen az örömteli síkon az ember kötetlen, lelki
-boldogságban él, s transzcendentális érzékszerveivel élvezni
-tudja azt. E szilárd helyzetben az igazságtól sohasem tér
-el, s érzi: ennél nagyobb nyereségre soha nem tehet szert.
-Ezt a fokot elérve kiegyensúlyozott és rendületlen még a
-legnagyobb nehézségek közepette is. Ez a valódi szabadság,
+A tökéletesség szintjét samadhinak, vagy transznak hívják.  
+Ilyenkor a yoga gyakorlása által az ember elméje minden  
+anyagi szellemi tevékenységtől mentes. Jellemzője, hogy a  
+yogi ebben az állapotban tiszta elméje segítségével  
+megláthatja önvalóját, s örömet, élvezetet tud meríteni  
+abból. Ezen az örömteli síkon az ember kötetlen, lelki  
+boldogságban él, s transzcendentális érzékszerveivel élvezni  
+tudja azt. E szilárd helyzetben az igazságtól sohasem tér  
+el, s érzi: ennél nagyobb nyereségre soha nem tehet szert.  
+Ezt a fokot elérve kiegyensúlyozott és rendületlen még a  
+legnagyobb nehézségek közepette is. Ez a valódi szabadság,  
 mely felold az anyagi kapcsolatok okozta szenvedések alól.
 
 ##### 24. vers
-Az embernek törhetetlen elszántsággal és hittel kell
-gyakorolnia a yogát. Kivétel nélkül meg kell válnia a hamis
-egóból eredő összes anyagi vágytól, s elméje által minden
+Az embernek törhetetlen elszántsággal és hittel kell  
+gyakorolnia a yogát. Kivétel nélkül meg kell válnia a hamis  
+egóból eredő összes anyagi vágytól, s elméje által minden  
 oldalról, egytől egyig szabályoznia kell érzékeit.
 
 ##### 25. vers
-Az ember teljes meggyőződéssel, lépésről lépésre, értelme
-segítségével szilárduljon meg a transzban, vagyis elméjét
-egyedül a Legfelsőbb Lélekre rögzítse, és semmi másra ne
+Az ember teljes meggyőződéssel, lépésről lépésre, értelme  
+segítségével szilárduljon meg a transzban, vagyis elméjét  
+egyedül a Legfelsőbb Lélekre rögzítse, és semmi másra ne  
 gondoljon.
 
 ##### 26. vers
-Az embernek határozottan vissza kell térítenie elméjét az
-önvaló felügyelete alá, csapongó és határozatlan természete
+Az embernek határozottan vissza kell térítenie elméjét az  
+önvaló felügyelete alá, csapongó és határozatlan természete  
 miatt bármikor és bárhová is vándoroljon az.
 
 ##### 27. vers
-Az a yogi, akinek elméje Rajtam nyugszik, biztosan eléri a
-legmagasabbrendű boldogságot. A Brahmannal való azonosulása
-által felszabadult, elméje békéssé vált, szenvedélye
+Az a yogi, akinek elméje Rajtam nyugszik, biztosan eléri a  
+legmagasabbrendű boldogságot. A Brahmannal való azonosulása  
+által felszabadult, elméje békéssé vált, szenvedélye  
 lecsendesült, s megszabadult a bűntől.
 
 ##### 28. vers
-A lelki megvalósításban, az önvalóban szilárdan horgonyzó,
-az anyagi szennyeződéstől megtisztult yogi a Legfelsőbb
-Tudattal állandó kapcsolatba kerülve eléri a boldogság
+A lelki megvalósításban, az önvalóban szilárdan horgonyzó,  
+az anyagi szennyeződéstől megtisztult yogi a Legfelsőbb  
+Tudattal állandó kapcsolatba kerülve eléri a boldogság  
 legmagasabb fokát.
 
 ##### 29. vers
-Az igazi yogi minden élőlényben Engem, s minden lényt Bennem
-lát. Valóban, az igazi énjét megvalósított yogi Engem lát
+Az igazi yogi minden élőlényben Engem, s minden lényt Bennem  
+lát. Valóban, az igazi énjét megvalósított yogi Engem lát  
 mindenhol.
 
 ##### 30. vers
-Aki mindenhol Engem, és mindent Bennem lát, számára Én
+Aki mindenhol Engem, és mindent Bennem lát, számára Én  
 sohasem veszek el, s ő sem vész el számomra soha.
 
 ##### 31. vers
-Az a yogi, aki tudja, hogy Én egy és ugyanaz vagyok, mint a
-minden élőlényben lakozó Felsőlélek, imád Engem, és mindig,
+Az a yogi, aki tudja, hogy Én egy és ugyanaz vagyok, mint a  
+minden élőlényben lakozó Felsőlélek, imád Engem, és mindig,  
 minden körülmények között Velem marad.
 
 ##### 32. vers
-Óh, Arjuna, az a tökéletes yogi, aki minden boldog vagy
-boldogtalan élőlényben magából kiindulva látja a
+Óh, Arjuna, az a tökéletes yogi, aki minden boldog vagy  
+boldogtalan élőlényben magából kiindulva látja a  
 hasonlóságot.
 
 ##### 33. vers
-Arjuna szólt:
-Óh, Madhusudana, számomra úgy tűnik, hogy az Általad
-ismertetett yoga nem praktikus, sőt elviselhetetlen, mert az
+Arjuna szólt:  
+Óh, Madhusudana, számomra úgy tűnik, hogy az Általad  
+ismertetett yoga nem praktikus, sőt elviselhetetlen, mert az  
 elme nyugtalan és ingatag.
 
 ##### 34. vers
-Óh, Krsna, én úgy látom, hogy könnyebb megállítani a szelet,
-mint szabályozni az elmét - nyugtalansága,
+Óh, Krsna, én úgy látom, hogy könnyebb megállítani a szelet,  
+mint szabályozni az elmét - nyugtalansága,  
 fegyelmezetlensége, csökönyössége és hihetetlen ereje miatt.
 
 ##### 35. vers
-A Magasztos Úr szólt:
-Óh, Kunti erős karú fia, a nyugtalan elmét legyűrni nagyon
-nehéz, ez kétségtelen, de az állandó gyakorlás és
+A Magasztos Úr szólt:  
+Óh, Kunti erős karú fia, a nyugtalan elmét legyűrni nagyon  
+nehéz, ez kétségtelen, de az állandó gyakorlás és  
 elkülönülés célhoz vezet.
 
 ##### 36. vers
-Az önmegvalósítás nehéz feladat annak, kinek elméje
-zabolátlan. De a szabályozott elméjű, a helyes eszközzel
+Az önmegvalósítás nehéz feladat annak, kinek elméje  
+zabolátlan. De a szabályozott elméjű, a helyes eszközzel  
 törekvő számára biztosított a siker. Ez az Én véleményem.
 
 ##### 37. vers
-Arjuna kérdezett:
-Mi a sorsa az olyan embernek, akinek hite ugyan van, de nem
-kitartó, s bár az önmegvalósítás folyamatába belefog,
-túlságosan világias elméje miatt később letér az útról,
+Arjuna kérdezett:  
+Mi a sorsa az olyan embernek, akinek hite ugyan van, de nem  
+kitartó, s bár az önmegvalósítás folyamatába belefog,  
+túlságosan világias elméje miatt később letér az útról,  
 tehát a misztika tökéletességét nem éri el?
 
 ##### 38. vers
-Óh, erőskarú Krsna, vajon a Transzcendencia útjáról letért
-ember nem fog-e a széltől szétkergetett felhőhöz hasonlóan
+Óh, erőskarú Krsna, vajon a Transzcendencia útjáról letért  
+ember nem fog-e a széltől szétkergetett felhőhöz hasonlóan  
 elveszni?
 
 ##### 39. vers
-Óh, Krsna, ez az én kétségem. Kérlek, segíts ezt teljesen
+Óh, Krsna, ez az én kétségem. Kérlek, segíts ezt teljesen  
 szétoszlatni, mert Rajtad kívül erre senki sem képes!
 
 ##### 40. vers
-A Magasztos Úr így válaszolt:
-Óh, Prtha fia, a jámbor cselekedeteket végző
-transzcendentalistát nem éri elmúlás sem ebben, sem a lelki
+A Magasztos Úr így válaszolt:  
+Óh, Prtha fia, a jámbor cselekedeteket végző  
+transzcendentalistát nem éri elmúlás sem ebben, sem a lelki  
 világban. A jótevőt sohasem győzi le a gonosz.
 
 ##### 41. vers
-A sikertelen yogi sok-sok évig fogja a jámbor élőlények
-bolygóin élvezni az életet, majd gazdag, arisztokratikus
+A sikertelen yogi sok-sok évig fogja a jámbor élőlények  
+bolygóin élvezni az életet, majd gazdag, arisztokratikus  
 vagy becsületes emberek családjában fog újraszületni.
 
 ##### 42. vers
-Az is lehet, hogy nagytudású yogi családjába születik, ami
+Az is lehet, hogy nagytudású yogi családjába születik, ami  
 ebben a világban bizony nem kis dolog.
 
 ##### 43. vers
-Óh, Kuru fia, az ilyen szerencsés születés után a yogi ismét
-ráébred előző életének isteni tudatára, és a teljes siker
+Óh, Kuru fia, az ilyen szerencsés születés után a yogi ismét  
+ráébred előző életének isteni tudatára, és a teljes siker  
 érdekében megpróbál további előrelépést tenni.
 
 ##### 44. vers
-Előző élete isteni tudata folytán automatikusan vonzódni fog
-a yoga elveihez, anélkül, hogy kutatna utánuk. Az ilyen,
-tudásra vágyó, yogára törekvő transzcendentalista felette
+Előző élete isteni tudata folytán automatikusan vonzódni fog  
+a yoga elveihez, anélkül, hogy kutatna utánuk. Az ilyen,  
+tudásra vágyó, yogára törekvő transzcendentalista felette  
 áll az Írások rituális elveinek.
 
 ##### 45. vers
-Amikor a yogi komoly eltökéltséggel hozzáfog, hogy még
-jobban előrehaladjon, akkor a sok-sok életen át tartó
-gyakorlat után megtisztul minden szennytől, és végül eléri a
+Amikor a yogi komoly eltökéltséggel hozzáfog, hogy még  
+jobban előrehaladjon, akkor a sok-sok életen át tartó  
+gyakorlat után megtisztul minden szennytől, és végül eléri a  
 legfelsőbb célt.
 
 ##### 46. vers
-A yogi jobb az aszkétánál, az empirikus filozófusnál és a
-munkája gyümölcseiért dolgozónál is. Óh, Arjuna, ezért légy
+A yogi jobb az aszkétánál, az empirikus filozófusnál és a  
+munkája gyümölcseiért dolgozónál is. Óh, Arjuna, ezért légy  
 yogi minden körülmény között!
 
 ##### 47. vers
-Aki nagy hittel mindig Bennem lakozik, s Engem imád
-transzcendentális szerető szolgálatában, az a
-legmeghittebben egyesül Velem a yogában, s az összes yogi
+Aki nagy hittel mindig Bennem lakozik, s Engem imád  
+transzcendentális szerető szolgálatában, az a  
+legmeghittebben egyesül Velem a yogában, s az összes yogi  
 közül ő a legkiválóbb.
 
 
