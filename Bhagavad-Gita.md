@@ -76,7 +76,7 @@ Minden testet öltött lélek a természet három kötőerejének, a jóság, a 
 15. [A Legfelsőbb Személy elérésének yogája](#a-legfelsőbb-Úrról-szóló-yoga)
 A védikus tudás végső célja, hogy megszabaduljunk a kötelékektől, melyek az anyagi világhoz fűznek bennünket, s megértsük, hogy az Úr Krisna az Istenség Legfelsőbb Személyisége. Aki megérti, kicsoda Isten, az meghódol Előtte, s odaadó szolgálatához lát.
 
-16. [Az isteni és a démoni természet](#az-isteni-és-a-démoni-természet)
+16. [Az isteni és a démoni természet](#az-isteni-és-démoni-természet)
 Akik démonikus tulajdonságokkal rendelkeznek, és a szentírások parancsait figyelmen kívül hagyva, saját szeszélyeiket követve élnek, alacsonyabb rendű fajokban születnek újjá, és létük az anyag börtönében tovább folytatódik. Akik azonban isteni tulajdonságok birtokában vannak, és a szentírások szabályainak engedelmeskedve élnek, lassanként lelki tökéletességre tesznek szert.
 
 17. [A hit fajtái](#a-háromféle-hit)
