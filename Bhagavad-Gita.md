@@ -1172,162 +1172,162 @@ yogával felfegyverkezve, és harcolj!
 #### Karma-yoga - cselekvés a Krsna-tudatban
 
 ##### 1. vers
-Arjuna szólt:
-Óh, Krsna, először a munka feladására kérsz, majd az
-odaadással végzett munkát ajánlod. Kérlek, mondd meg nekem
+Arjuna szólt:  
+Óh, Krsna, először a munka feladására kérsz, majd az  
+odaadással végzett munkát ajánlod. Kérlek, mondd meg nekem  
 határozottan, a kettő közül melyik hasznosabb?
 
 ##### 2. vers
-A Magasztos Úr így válaszolt:
-A munka lemondása és az odaadással végzett munka egyaránt a
-felszabaduláshoz vezet. De a kettő közül az odaadó szolgálat
+A Magasztos Úr így válaszolt:  
+A munka lemondása és az odaadással végzett munka egyaránt a  
+felszabaduláshoz vezet. De a kettő közül az odaadó szolgálat  
 a jobb.
 
 ##### 3. vers
-Óh, erőskarú Arjuna, mindig sannyasiként él az, aki nem
-vágyakozik munkája gyümölcseire, és nem is gyűlöli őket. Az
-ilyen mentes az ellentétpároktól, könnyen legyőzi az anyagi
+Óh, erőskarú Arjuna, mindig sannyasiként él az, aki nem  
+vágyakozik munkája gyümölcseire, és nem is gyűlöli őket. Az  
+ilyen mentes az ellentétpároktól, könnyen legyőzi az anyagi  
 kötelékeket, és teljesen felszabadul.
 
 ##### 4. vers
-Csak a tudatlanok mondják, hogy az odaadó szolgálat (karma-
-yoga) különbözik az anyagi világ analitikus
-tanulmányozásától, a sankhyától. A nagy tudásúak szerint,
-aki helyesen halad a két út egyikén, az mindkettő eredményét
+Csak a tudatlanok mondják, hogy az odaadó szolgálat (karma-  
+yoga) különbözik az anyagi világ analitikus  
+tanulmányozásától, a sankhyától. A nagy tudásúak szerint,  
+aki helyesen halad a két út egyikén, az mindkettő eredményét  
 elnyeri.
 
 ##### 5. vers
-Aki tudja, hogy odaadó munkával is elérhető az, ami
-lemondással, s aki ezért a munka és a lemondás útját egynek
+Aki tudja, hogy odaadó munkával is elérhető az, ami  
+lemondással, s aki ezért a munka és a lemondás útját egynek  
 látja - az valóban lát.
 
 ##### 6. vers
-Az ember mindaddig nem lehet boldog egyedül a tettekről való
-lemondás által, míg odaadással nem szolgálja az Urat. Az
-ilyen munkától megtisztult bölcsek késedelem nélkül elérik a
+Az ember mindaddig nem lehet boldog egyedül a tettekről való  
+lemondás által, míg odaadással nem szolgálja az Urat. Az  
+ilyen munkától megtisztult bölcsek késedelem nélkül elérik a  
 Legfelsőbbet.
 
 ##### 7. vers
-Az elméjén és érzékein uralkodó, odaadással dolgozó tiszta
-lélek kedvel mindenkit, és mindenki kedveli őt. Az ilyen
+Az elméjén és érzékein uralkodó, odaadással dolgozó tiszta  
+lélek kedvel mindenkit, és mindenki kedveli őt. Az ilyen  
 embert, bár állandóan dolgozik, sohasem kötik tettei.
 
 ##### 8-9. vers
-Az Isteni tudatban élő, bár lát, hall, érint, szagol, eszik,
-mozog, alszik és lélegzik, mindig tudja, hogy ő maga
-tulajdonképpen nem tesz semmit. A beszéd, ürítés, elfogadás,
-a szem kinyitása és behunyása közben állandóan tudatában van
-annak, hogy csupán az anyagi érzékek foglalkoznak
+Az Isteni tudatban élő, bár lát, hall, érint, szagol, eszik,  
+mozog, alszik és lélegzik, mindig tudja, hogy ő maga  
+tulajdonképpen nem tesz semmit. A beszéd, ürítés, elfogadás,  
+a szem kinyitása és behunyása közben állandóan tudatában van  
+annak, hogy csupán az anyagi érzékek foglalkoznak  
 tárgyaikkal, ezért felettük áll.
 
 ##### 10. vers
-Aki ragaszkodás nélkül végzi kötelességét, és minden
-eredményt átad az Istenség Legfelsőbb Személyiségének, azt
+Aki ragaszkodás nélkül végzi kötelességét, és minden  
+eredményt átad az Istenség Legfelsőbb Személyiségének, azt  
 nem éri bűn, mint ahogyan a víz sem éri a lótuszlevelet.
 
 ##### 11. vers
-A yogik feladják a ragaszkodást, s csakis a megtisztulás
-kedvéért cselekednek testükkel, elméjükkel, értelmükkel vagy
+A yogik feladják a ragaszkodást, s csakis a megtisztulás  
+kedvéért cselekednek testükkel, elméjükkel, értelmükkel vagy  
 akár az érzékeikkel.
 
 ##### 12. vers
-A rendíthetetlen, odaadó lélek tökéletes békét ér el, mert
-minden tette eredményét Énnekem ajánlja fel. De aki nem él
-harmóniában az Abszolúttal, s munkája gyümölcseire sóvárog,
+A rendíthetetlen, odaadó lélek tökéletes békét ér el, mert  
+minden tette eredményét Énnekem ajánlja fel. De aki nem él  
+harmóniában az Abszolúttal, s munkája gyümölcseire sóvárog,  
 az rabja lesz cselekedeteinek.
 
 ##### 13. vers
-Amikor a megtestesült lélek fegyelmezi természetét, és
-elméjében lemond minden tettről, akkor boldogan pihen a
-kilenckapus városban [az anyagi testben]. Nem cselekszik ő,
+Amikor a megtestesült lélek fegyelmezi természetét, és  
+elméjében lemond minden tettről, akkor boldogan pihen a  
+kilenckapus városban [az anyagi testben]. Nem cselekszik ő,  
 s nem is oka az anyagi tetteknek.
 
 ##### 14. vers
-A megtestesült lélek, a test városának ura nem hoz létre
-tetteket, nem készteti cselekvésre az embereket, és a munka
-gyümölcseit sem ő teremti meg; mindezt az anyagi természet
+A megtestesült lélek, a test városának ura nem hoz létre  
+tetteket, nem készteti cselekvésre az embereket, és a munka  
+gyümölcseit sem ő teremti meg; mindezt az anyagi természet  
 kötőerői végzik.
 
 ##### 15. vers
-A Legfelsőbb Lélek nem vállalja magára senki jó vagy bűnös
-cselekedetét. A megtestesült lényeket azonban megtéveszti az
+A Legfelsőbb Lélek nem vállalja magára senki jó vagy bűnös  
+cselekedetét. A megtestesült lényeket azonban megtéveszti az  
 a tudatlanság, amely befedi igazi tudásukat.
 
 ##### 16. vers
-Ellenben amikor a tudatlanságot eloszlató tudás
-megvilágosítja az embert, akkor az felfed mindent, ahogyan a
+Ellenben amikor a tudatlanságot eloszlató tudás  
+megvilágosítja az embert, akkor az felfed mindent, ahogyan a  
 felkelő Nap is fényt vet mindenre.
 
 ##### 17. vers
-Amikor az ember értelme, elméje, hite és menedéke mind
-szilárdan a Legfelsőbben gyökerezik, akkor tökéletes tudása
-által teljesen megtisztul kétségeitől, és
+Amikor az ember értelme, elméje, hite és menedéke mind  
+szilárdan a Legfelsőbben gyökerezik, akkor tökéletes tudása  
+által teljesen megtisztul kétségeitől, és  
 feltartóztathatatlanul halad a felszabadulás útján.
 
 ##### 18. vers
-A szerény bölcs igaz tudása által egyenlőnek látja a tanult
-és alázatos brahmanát, a tehenet, az elefántot, a kutyát és
+A szerény bölcs igaz tudása által egyenlőnek látja a tanult  
+és alázatos brahmanát, a tehenet, az elefántot, a kutyát és  
 a kutyaevőt (kaszton-kívülit) is.
 
 ##### 19. vers
-Akiknek elméje megállapodott a változatlanságban és az
-egyensúlyban, azok már legyőzték a születést és halált.
+Akiknek elméje megállapodott a változatlanságban és az  
+egyensúlyban, azok már legyőzték a születést és halált.  
 Hibátlanok ők, mint Brahman, s így már őbenne vannak.
 
 ##### 20. vers
-Aki nem örvendezik, ha valami kellemes éri, s nem búsul a
-kellemetlenen, kinek értelme rendületlen; megtéveszthetetlen
-és jártas az Istenről szóló tudományban, az már
+Aki nem örvendezik, ha valami kellemes éri, s nem búsul a  
+kellemetlenen, kinek értelme rendületlen; megtéveszthetetlen  
+és jártas az Istenről szóló tudományban, az már  
 megállapodott a Transzcendensben.
 
 ##### 21. vers
-Az ilyen felszabadult személy nem vonzódik az anyagi érzéki
-élvezetekhez, sem a külső tárgyakhoz; csak az önvalóban leli
-örömét, s ezért mindig transzban van. Az énjét megvalósított
-ily módon határtalan boldogságot érez, mert figyelmét a
+Az ilyen felszabadult személy nem vonzódik az anyagi érzéki  
+élvezetekhez, sem a külső tárgyakhoz; csak az önvalóban leli  
+örömét, s ezért mindig transzban van. Az énjét megvalósított  
+ily módon határtalan boldogságot érez, mert figyelmét a  
 Legfelsőbbre összpontosítja.
 
 ##### 22. vers
-Az okos távol tartja magát az anyagi érzékek kapcsolatából
-származó gyönyörtől, hiszen az a szenvedés eredete. Óh,
-Kunti fia, az efféle élvezeteknek kezdetük és végük van,
+Az okos távol tartja magát az anyagi érzékek kapcsolatából  
+származó gyönyörtől, hiszen az a szenvedés eredete. Óh,  
+Kunti fia, az efféle élvezeteknek kezdetük és végük van,  
 ezért a bölcs nem bennük leli örömét.
 
 ##### 23. vers
-Ha valaki képes eltűrni az anyagi érzékek ösztönzéseit, s
-még a jelen teste feladása előtt legyűrni a vágy és harag
+Ha valaki képes eltűrni az anyagi érzékek ösztönzéseit, s  
+még a jelen teste feladása előtt legyűrni a vágy és harag  
 hatalmát, az yogi, és boldog ebben a világban.
 
 ##### 24. vers
-Valójában az a tökéletes yogi, aki belsejében boldog és
-aktív, onnan merít örömöt, és belsejében felvilágosult. Ő
+Valójában az a tökéletes yogi, aki belsejében boldog és  
+aktív, onnan merít örömöt, és belsejében felvilágosult. Ő  
 felszabadult a Legfelsőbben, s végül el is éri Őt.
 
 ##### 25. vers
-Akik túljutnak a kettősségen és kétségen, akiknek elméjét a
-lélek foglalkoztatja, állandóan az érző lények jólétéért
-serénykednek, s mentesek minden bűntől, azok
+Akik túljutnak a kettősségen és kétségen, akiknek elméjét a  
+lélek foglalkoztatja, állandóan az érző lények jólétéért  
+serénykednek, s mentesek minden bűntől, azok  
 felszabaduláshoz jutnak a Legfelsőbben.
 
 ##### 26. vers
-Azok a szent személyek, akik mentesek a haragtól és minden
-anyagi vágytól, akik megvalósították igazi énjüket,
-önfegyelmezettek és állandóan tökéletességre törekednek,
+Azok a szent személyek, akik mentesek a haragtól és minden  
+anyagi vágytól, akik megvalósították igazi énjüket,  
+önfegyelmezettek és állandóan tökéletességre törekednek,  
 azok a közeljövőben biztosan felszabadulnak a Legfelsőbben.
 
 ##### 27-28. vers
-Amikor kizárja az összes külső érzéki tárgyat, tekintetét a
-szemöldök közé rögzíti, leállítja a ki- és belélegzést az
-orrlyukban, és ily módon szabályozza az elmét, az érzékeket
-és az értelmet, akkor a transzcendentalista megszabadul a
-vágytól, félelemtől és haragtól. Aki mindig ebben az
+Amikor kizárja az összes külső érzéki tárgyat, tekintetét a  
+szemöldök közé rögzíti, leállítja a ki- és belélegzést az  
+orrlyukban, és ily módon szabályozza az elmét, az érzékeket  
+és az értelmet, akkor a transzcendentalista megszabadul a  
+vágytól, félelemtől és haragtól. Aki mindig ebben az  
 állapotban van, az biztos, hogy felszabadult.
 
 ##### 29. vers
-A bölcsek megszabadulnak az anyagi szenvedéstől, s békéhez
-jutnak, mert tudják, hogy Én vagyok minden áldozat és
-önfegyelmezés végső célja, a bolygók és félistenek
-Legfelsőbb Ura, valamint az összes élőlény jóakarója és
+A bölcsek megszabadulnak az anyagi szenvedéstől, s békéhez  
+jutnak, mert tudják, hogy Én vagyok minden áldozat és  
+önfegyelmezés végső célja, a bolygók és félistenek  
+Legfelsőbb Ura, valamint az összes élőlény jóakarója és  
 jótevője.
 
 
