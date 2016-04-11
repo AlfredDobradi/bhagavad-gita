@@ -2744,7 +2744,7 @@ meggyőződések - ezeket együttesen a tettek mezejének és
 visszahatásainak tekintik.
 
 ##### 8-12. vers
-Alázatosság, büszkeség (\*nélküliség), erőszak nélküliség, béketűrés,  
+Alázatosság, büszkeség [nélküliség](#nélküliség), erőszak nélküliség, béketűrés,  
 egyszerűség, egy hiteles lelki tanítómester elfogadása,  
 tisztaság, kitartás, önszabályozás, az érzékkielégítés  
 tárgyairól való lemondás, mentesség a hamis egotól, a  
@@ -3418,398 +3418,399 @@ semmit, sem ebben, sem a következő életben.
 #### Végkövetkeztetés - a tökéletes lemondás
 
 ##### 1. vers
-Arjuna szólt:
-Óh, Hrsikesa, óh, Kesi démon legyőzője, szeretném megérteni
-a lemondás (tyaga) és a lemondott életrend (sannyasa)
+Arjuna szólt:  
+Óh, Hrsikesa, óh, Kesi démon legyőzője, szeretném megérteni  
+a lemondás (tyaga) és a lemondott életrend (sannyasa)  
 célját.
 
 ##### 2. vers
-A Legfelsőbb Úr szólott:
-A tapasztalt bölcsek az összes tett eredményének feladását
-hívják tyagának, s azt az állapotot, vagyis a vágyakkal
+A Legfelsőbb Úr szólott:  
+A tapasztalt bölcsek az összes tett eredményének feladását  
+hívják tyagának, s azt az állapotot, vagyis a vágyakkal  
 végzett tettektől való elállást nevezik sannyasának.
 
 ##### 3. vers
-Némely tanult ember úgy véli, hogy mindenfajta gyümölcsöző
-tett rossz, ezért fel kell hagyni velük, míg más bölcsek azt
-állítják, hogy az áldozat, adományozás és önszigor tetteiről
+Némely tanult ember úgy véli, hogy mindenfajta gyümölcsöző  
+tett rossz, ezért fel kell hagyni velük, míg más bölcsek azt  
+állítják, hogy az áldozat, adományozás és önszigor tetteiről  
 sohasem szabad lemondani.
 
 ##### 4. vers
-Óh, Bharaták legkiválóbbja, hallj most Tőlem a lemondásról!
-Óh, Tigris-az-emberek-között, háromféle lemondásról tesznek
+Óh, Bharaták legkiválóbbja, hallj most Tőlem a lemondásról!  
+Óh, Tigris-az-emberek-között, háromféle lemondásról tesznek  
 említést az Írások.
 
 ##### 5. vers
-Az áldozás, adományozás és önfegyelmezés tetteit nem szabad
-feladni, sőt ezeket mindig végre kell hajtani. Tény, hogy
+Az áldozás, adományozás és önfegyelmezés tetteit nem szabad  
+feladni, sőt ezeket mindig végre kell hajtani. Tény, hogy  
 mindhárom tisztítóan hat még a nagy lelkekre is.
 
 ##### 6. vers
-Óh, Partha, mindezt kötelességérzetből, és a haszonlesés
-leghalványabb óhaja nélkül kell végrehajtani. Ez az Én
+Óh, Partha, mindezt kötelességérzetből, és a haszonlesés  
+leghalványabb óhaja nélkül kell végrehajtani. Ez az Én  
 határozott véleményem.
 
 ##### 7. vers
-Az előírt kötelességeket sohasem szabad feladni. Ha valaki
-az illúziótól megtévesztve mégis megválik tőlük, akkor
+Az előírt kötelességeket sohasem szabad feladni. Ha valaki  
+az illúziótól megtévesztve mégis megválik tőlük, akkor  
 lemondását a tudatlanság kötőerejébe sorolják.
 
 ##### 8. vers
-Aki félelemből, vagy mert fáradságosak, feladja az előírt
-kötelességeit, az a szenvedély kötelékében van. Így sohasem
+Aki félelemből, vagy mert fáradságosak, feladja az előírt  
+kötelességeit, az a szenvedély kötelékében van. Így sohasem  
 lehet elérni a lemondás eredményét.
 
 ##### 9. vers
-Óh, Arjuna, aki csak azért hajtja végre az előírt
-kötelességét, mert annak így kell lennie, és felhagy a tett
-gyümölcseihez való ragaszkodással, annak lemondása a jóság
+Óh, Arjuna, aki csak azért hajtja végre az előírt  
+kötelességét, mert annak így kell lennie, és felhagy a tett  
+gyümölcseihez való ragaszkodással, annak lemondása a jóság  
 minőségébe tartozik.
 
 ##### 10. vers
-A jóságban élők nem utálják a kedvezőtlen munkát, de nem is
-ragaszkodnak a kedvezőhöz, okos emberek, s nincsenek
+A jóságban élők nem utálják a kedvezőtlen munkát, de nem is  
+ragaszkodnak a kedvezőhöz, okos emberek, s nincsenek  
 kétségeik a munkát illetően.
 
 ##### 11. vers
-A megtestesült lélek valójában képtelen minden tettől
-megválni. Ezért mondják, hogy az igazi lemondás az, ha
+A megtestesült lélek valójában képtelen minden tettől  
+megválni. Ezért mondják, hogy az igazi lemondás az, ha  
 valaki a tettei gyümölcséről mond le.
 
 ##### 12. vers
-Aki nem lemondó, annak tettei háromféle gyümölcsöt teremnek
-a halál után: kedvezőt, kedvezőtlent és vegyeset. Ez viszont
+Aki nem lemondó, annak tettei háromféle gyümölcsöt teremnek  
+a halál után: kedvezőt, kedvezőtlent és vegyeset. Ez viszont  
 sohasem vonatkozik a lemondott rendben élőkre.
 
 ##### 13-14. vers
-Óh, erőskarú Arjuna, hallj most Tőlem az öt tényezőről, az
-összes tett teljesítésének elősegítőjéről! A sankhya
-filozófia szerint ezek az alábbiak: a tett színhelye, a
+Óh, erőskarú Arjuna, hallj most Tőlem az öt tényezőről, az  
+összes tett teljesítésének elősegítőjéről! A sankhya  
+filozófia szerint ezek az alábbiak: a tett színhelye, a  
 végrehajtó, az érzékek, a törekvés és végül a Felsőlélek.
 
 ##### 15. vers
-Ez az öt tényező okoz minden jó vagy rossz tettet, amit az
+Ez az öt tényező okoz minden jó vagy rossz tettet, amit az  
 ember a testével, elméjével és beszédével végrehajt.
 
 ##### 16. vers
-Ezért, aki figyelmen kívül hagyja ezt az öt tényezőt, s az
-énjét hiszi egyedüli cselekvőnek, az nem látja a dolgokat
+Ezért, aki figyelmen kívül hagyja ezt az öt tényezőt, s az  
+énjét hiszi egyedüli cselekvőnek, az nem látja a dolgokat  
 azok valójában, így érthető módon egyáltalán nem okos.
 
 ##### 17. vers
-Akit nem a hamis ego ösztönöz, és értelme mentes az anyagi
-kötelékektől, azt tettei nem kötik, s nem is gyilkos ő, még
+Akit nem a hamis ego ösztönöz, és értelme mentes az anyagi  
+kötelékektől, azt tettei nem kötik, s nem is gyilkos ő, még  
 ha embereket is öl e világban.
 
 ##### 18. vers
-A tudás, a tudás tárgya és a tudó a tett három ösztönző
-tényezője, az érzékek, a munka és a cselekvő pedig a tett
+A tudás, a tudás tárgya és a tudó a tett három ösztönző  
+tényezője, az érzékek, a munka és a cselekvő pedig a tett  
 háromrétegű alapját képezik.
 
 ##### 19. vers
-Az anyagi természet három kötőerejével párhuzamosan
-háromféle a tudás, a tett és a cselekvő is. Íme, halld ezt
+Az anyagi természet három kötőerejével párhuzamosan  
+háromféle a tudás, a tett és a cselekvő is. Íme, halld ezt  
 is!
 
 ##### 20. vers
-A jóság minőségébe az a tudás tartozik, ami által az ember
-minden létben az egy és örökkévaló lelki természetet látja,
+A jóság minőségébe az a tudás tartozik, ami által az ember  
+minden létben az egy és örökkévaló lelki természetet látja,  
 a fel nem oszthatót a felosztottban.
 
 ##### 21. vers
-A szenvedély kötőerejébe az a tudás tartozik, ami által a
+A szenvedély kötőerejébe az a tudás tartozik, ami által a  
 különböző testek szerint lát különféle élőlényeket az ember.
 
 ##### 22. vers
-Az igazságról mit sem tudó, csekély, realitás és ok nélküli
-ismeretről - amely által úgy vonzódik az ember egy bizonyos
-fajta munkához, mint az egyetlenhez - azt mondják, hogy a
+Az igazságról mit sem tudó, csekély, realitás és ok nélküli  
+ismeretről - amely által úgy vonzódik az ember egy bizonyos  
+fajta munkához, mint az egyetlenhez - azt mondják, hogy a  
 tudatlanság kötőerejébe tartozik.
 
 ##### 23. vers
-A kötelesség szerinti tettet, amit az eredmények
-gyümölcséről lemondott ember kötődés, vonzódás vagy gyűlölet
+A kötelesség szerinti tettet, amit az eredmények  
+gyümölcséről lemondott ember kötődés, vonzódás vagy gyűlölet  
 nélkül hajt végre, a jóság kötőerejébe sorolják.
 
 ##### 24. vers
-Viszont, amit nagy erőlködéssel végez a vágyait kielégíteni
-óhajtó, s ami a hamis egoból származik, azt a szenvedély
+Viszont, amit nagy erőlködéssel végez a vágyait kielégíteni  
+óhajtó, s ami a hamis egoból származik, azt a szenvedély  
 kötőerejébe sorolják.
 
 ##### 25. vers
-A tudatlanságban és illúzióban végrehajtott, a jövőbeli
-kötöttséget és a következményeket figyelmen kívül hagyó, a
-mások számára ártalmas, célszerűtlen tettről pedig azt
+A tudatlanságban és illúzióban végrehajtott, a jövőbeli  
+kötöttséget és a következményeket figyelmen kívül hagyó, a  
+mások számára ártalmas, célszerűtlen tettről pedig azt  
 mondják, hogy a tudatlanság kötőereje jellemzi.
 
 ##### 26. vers
-Az anyagi ragaszkodástól és a hamis egotól megszabadult,
-lelkes, határozott, a sikerrel és kudarccal szemben egyaránt
+Az anyagi ragaszkodástól és a hamis egotól megszabadult,  
+lelkes, határozott, a sikerrel és kudarccal szemben egyaránt  
 közömbös cselekvő a jóság kötőerejébe tartozik.
 
 ##### 27. vers
-A munkája gyümölcséhez ragaszkodó, azt szenvedélyesen
-élvezni akaró, kapzsi, irigy, tisztátlan, az örömtől és
+A munkája gyümölcséhez ragaszkodó, azt szenvedélyesen  
+élvezni akaró, kapzsi, irigy, tisztátlan, az örömtől és  
 bánattól befolyásolt cselekvő a szenvedély kötőerejében van.
 
 ##### 28. vers
-Az a munkás pedig, aki mindig az Írások parancsaival
-ellenkező munkát végez, materialista, önfejű, csaló, lusta,
-állandóan mogorva, halogató és nagyon ért mások
+Az a munkás pedig, aki mindig az Írások parancsaival  
+ellenkező munkát végez, materialista, önfejű, csaló, lusta,  
+állandóan mogorva, halogató és nagyon ért mások  
 megsértéséhez - a tudatlanság kötőerejébe tartozik.
 
 ##### 29. vers
-Óh, Dhananjaya, figyelj, amint részletesen leírom neked az
-anyagi természet kötőerői szerinti háromféle értelmet és
+Óh, Dhananjaya, figyelj, amint részletesen leírom neked az  
+anyagi természet kötőerői szerinti háromféle értelmet és  
 határozottságot.
 
 ##### 30. vers
-Óh, Partha, az illúzió és sötétség varázsa alatt a
-vallástalanságot vallásnak, a vallást vallástalanságnak
-vélő, mindig rossz irányba törekvő értelem a tudatlanság
+Óh, Partha, az illúzió és sötétség varázsa alatt a  
+vallástalanságot vallásnak, a vallást vallástalanságnak  
+vélő, mindig rossz irányba törekvő értelem a tudatlanság  
 kötőerejébe tartozik.
 
 ##### 31. vers
-Az a tökéletlen értelem, amely nem tud különbséget tenni a
-vallásos és az ateista élet, valamint a végrehajtandó és az
-elkerülendő tettek között, a szenvedély kötőerejében van,
+Az a tökéletlen értelem, amely nem tud különbséget tenni a  
+vallásos és az ateista élet, valamint a végrehajtandó és az  
+elkerülendő tettek között, a szenvedély kötőerejében van,  
 óh, Prtha fia.
 
 ##### 32. vers
-Óh, Partha, az illúzió és a sötétség varázsa alatt a vallástalanságot
-vallásnak, a vallást vallástalanságnak vélő, mindig rossz irányba
+Óh, Partha, az illúzió és a sötétség varázsa alatt a vallástalanságot  
+vallásnak, a vallást vallástalanságnak vélő, mindig rossz irányba  
 törekvő értelem a tudatlanság kötőerejébe tartozik.
 
 ##### 33. vers
-Óh, Prtha fia, az a rendületlen határozottság, amely a yoga
-gyakorlása által marad szilárd, s szabályozza az elmét, az
+Óh, Prtha fia, az a rendületlen határozottság, amely a yoga  
+gyakorlása által marad szilárd, s szabályozza az elmét, az  
 életet és az érzékek működését, a jóság minőségében van.
 
 ##### 34. vers
-Óh, Arjuna, az a határozottság, amely által szorosan kötődik
-az ember a gyümölcsöző eredményhez a vallásban, gazdasági
-fejlődésben és érzékkielégítésben, a szenvedély minőségében
+Óh, Arjuna, az a határozottság, amely által szorosan kötődik  
+az ember a gyümölcsöző eredményhez a vallásban, gazdasági  
+fejlődésben és érzékkielégítésben, a szenvedély minőségében  
 van.
 
 ##### 35. vers
-Az az ostoba határozottság pedig, óh, Partha, amely nem
-képes túljutni az álmon, félelmen, bánkódáson, mogorvaságon
+Az az ostoba határozottság pedig, óh, Partha, amely nem  
+képes túljutni az álmon, félelmen, bánkódáson, mogorvaságon  
 és illúzión, a tudatlanság kötőerejébe tartozik.
 
 ##### 36-37. vers
-Óh, Bharaták legkiválóbbja, kérlek, hallj most Tőlem a
-háromféle örömről, amit a feltételekhez kötött lélek élvez,
-s amely néha minden fájdalmának véget vet. Az eleinte
-méregnek tűnő öröm, amely végül nektárédessé válik, s
-gyakorlása által ráébreszti az embert az önmegvalósításra -
+Óh, Bharaták legkiválóbbja, kérlek, hallj most Tőlem a  
+háromféle örömről, amit a feltételekhez kötött lélek élvez,  
+s amely néha minden fájdalmának véget vet. Az eleinte  
+méregnek tűnő öröm, amely végül nektárédessé válik, s  
+gyakorlása által ráébreszti az embert az önmegvalósításra -  
 azt a jóság kötőereje szerint valónak nevezik.
 
 ##### 38. vers
-Azt az örömöt, amit az ember az érzékeknek az
-érzéktárgyakkal való kapcsolatából merít, s ami az elején
-nektárnak, ám később méregnek tűnik, a szenvedély minőségébe
+Azt az örömöt, amit az ember az érzékeknek az  
+érzéktárgyakkal való kapcsolatából merít, s ami az elején  
+nektárnak, ám később méregnek tűnik, a szenvedély minőségébe  
 sorolják.
 
 ##### 39. vers
-Az az öröm pedig, ami kötve és távol tartja az embert az
-önmegvalósítástól, ami az elejétől a végéig illúzió, s
-alvásból, tunyaságból és tévhitből születik, a tudatlanság
+Az az öröm pedig, ami kötve és távol tartja az embert az  
+önmegvalósítástól, ami az elejétől a végéig illúzió, s  
+alvásból, tunyaságból és tévhitből születik, a tudatlanság  
 kötőerejében van.
 
 ##### 40. vers
-Nincsen olyan lény, sem itt, sem a felsőbb bolygók
-félistenei között, aki mentes lenne az anyagi természet
+Nincsen olyan lény, sem itt, sem a felsőbb bolygók  
+félistenei között, aki mentes lenne az anyagi természet  
 három kötőerejétől.
 
 ##### 41. vers
-Óh, Ellenség fenyítője, a brahmanákat, ksatriyákat,
-vaisyákat és sudrákat cselekedeteik minősége szerint, az
+Óh, Ellenség fenyítője, a brahmanákat, ksatriyákat,  
+vaisyákat és sudrákat cselekedeteik minősége szerint, az  
 anyagi természet kötőerőinek megfelelően csoportosítják.
 
 ##### 42. vers
-A brahmanák munkáját az alábbi, természetükből adódó
-tulajdonságok jellemzik: nyugodtság, önfegyelmezés,
-tisztaság, béketűrés, becsületesség, bölcsesség, tudás és
+A brahmanák munkáját az alábbi, természetükből adódó  
+tulajdonságok jellemzik: nyugodtság, önfegyelmezés,  
+tisztaság, béketűrés, becsületesség, bölcsesség, tudás és  
 vallásosság.
 
 ##### 43. vers
-Hősiesség, erő, elszántság, leleményesség, bátorság a
-csatában, nagylelkűség és vezetőképesség képezi a ksatriyák
+Hősiesség, erő, elszántság, leleményesség, bátorság a  
+csatában, nagylelkűség és vezetőképesség képezi a ksatriyák  
 feladatát.
 
 ##### 44. vers
-A vaisyák természetéből adódó kötelességét földművelés,
-tehenek védelme és kereskedés, a sudrákét pedig a fizikai
+A vaisyák természetéből adódó kötelességét földművelés,  
+tehenek védelme és kereskedés, a sudrákét pedig a fizikai  
 munka és mások szolgálata jellemzi.
 
 ##### 45. vers
-Mindenki elérheti a tökélyt saját kötelessége
+Mindenki elérheti a tökélyt saját kötelessége  
 végrehajtásával. Halld most Tőlem, miképpen lehetséges ez!
 
 ##### 46. vers
-Ha kötelessége teljesítése közben a mindent-átható Urat, az
-összes élőlény eredetét imádja az ember, akkor elérheti a
+Ha kötelessége teljesítése közben a mindent-átható Urat, az  
+összes élőlény eredetét imádja az ember, akkor elérheti a  
 tökéletességet.
 
 ##### 47. vers
-Jobb az embernek a saját kötelességét végeznie, ha hibásan
-is, mint hogy elvegye másét, és tökéletesen megcsinálja azt.
-Az ember saját természetéhez igazodó, előírt kötelességeit
+Jobb az embernek a saját kötelességét végeznie, ha hibásan  
+is, mint hogy elvegye másét, és tökéletesen megcsinálja azt.  
+Az ember saját természetéhez igazodó, előírt kötelességeit  
 sohasem éri a bűnös visszahatás.
 
 ##### 48. vers
-Mint lángot a füst, úgy takar be minden igyekezetet
-valamilyen hiba. Óh, Kaunteya, ezért az embernek nem szabad
-feladnia a természetéből fakadó munkát még akkor sem, ha az
+Mint lángot a füst, úgy takar be minden igyekezetet  
+valamilyen hiba. Óh, Kaunteya, ezért az embernek nem szabad  
+feladnia a természetéből fakadó munkát még akkor sem, ha az  
 hibákkal teli.
 
 ##### 49. vers
-Az éri el a lemondás legtökéletesebb fokát, aki fegyelmezi
-érzékeit, értelmével elrugaszkodik az anyagi dolgoktól, s
+Az éri el a lemondás legtökéletesebb fokát, aki fegyelmezi  
+érzékeit, értelmével elrugaszkodik az anyagi dolgoktól, s  
 figyelmen kívül hagyja az anyagi élvezetet.
 
 ##### 50. vers
-Óh, Kunti fia, tanuld meg Tőlem, amit most összefoglalok:
-milyen módon cselekedve érheti el valaki Brahmant, a
+Óh, Kunti fia, tanuld meg Tőlem, amit most összefoglalok:  
+milyen módon cselekedve érheti el valaki Brahmant, a  
 tökéletesség legfelsőbb szintjét.
 
 ##### 51-53. vers
-Aki az értelme által megtisztult, elméjét szilárd
-határozottsággal fegyelmezi, megvált az érzékkielégítés
-tárgyaitól, mentes a ragaszkodástól és a gyűlölettől,
-magányos helyen él, keveset eszik, testét és nyelvét
-fegyelmezi, mindig transzban van, lemondó, mentes a hamis
-egotól, az álhatalomtól, hamis büszkeségtől, kéjtől, dühtől
-és birtoklásérzettől, s békés, az biztosan felemelkedik az
+Aki az értelme által megtisztult, elméjét szilárd  
+határozottsággal fegyelmezi, megvált az érzékkielégítés  
+tárgyaitól, mentes a ragaszkodástól és a gyűlölettől,  
+magányos helyen él, keveset eszik, testét és nyelvét  
+fegyelmezi, mindig transzban van, lemondó, mentes a hamis  
+egotól, az álhatalomtól, hamis büszkeségtől, kéjtől, dühtől  
+és birtoklásérzettől, s békés, az biztosan felemelkedik az  
 önmegvalósítás síkjára.
 
 ##### 54. vers
-Aki ilyenformán eljutott a transzcendentális síkra, az
-egyszerre megvalósítja a Legfelsőbb Brahmant. Sohasem
-bánkódik, és nem is vágyik semmire, egyenlő minden
-élőlénnyel szemben. Ebben az állapotban tiszta odaadó
+Aki ilyenformán eljutott a transzcendentális síkra, az  
+egyszerre megvalósítja a Legfelsőbb Brahmant. Sohasem  
+bánkódik, és nem is vágyik semmire, egyenlő minden  
+élőlénnyel szemben. Ebben az állapotban tiszta odaadó  
 szolgálatot ér el Énirántam.
 
 ##### 55. vers
-A Legfelsőbb Személyt kizárólag az odaadó szolgálat által
-lehet igazán megérteni, s ha valaki az ilyen odaadás által
-teljesen tudatossá vált Istenről, akkor bejuthat az Ő
+A Legfelsőbb Személyt kizárólag az odaadó szolgálat által  
+lehet igazán megérteni, s ha valaki az ilyen odaadás által  
+teljesen tudatossá vált Istenről, akkor bejuthat az Ő  
 birodalmába.
 
 ##### 56. vers
-Az Én hívem, bár állandóan sokféle tettet végez, az Én
-védelmem alatt, kegyem révén eléri örökkévaló és
+Az Én hívem, bár állandóan sokféle tettet végez, az Én  
+védelmem alatt, kegyem révén eléri örökkévaló és  
 elpusztíthatatlan lakhelyemet.
 
 ##### 57. vers
-Minden cselekedetedben csak Énrám bízd magad, s dolgozz
-mindig az Én védelmem alatt! Légy teljesen tudatos Rólam az
+Minden cselekedetedben csak Énrám bízd magad, s dolgozz  
+mindig az Én védelmem alatt! Légy teljesen tudatos Rólam az  
 ilyen odaadó szolgálatban!
 
 ##### 58. vers
-Ha tudatos leszel Rólam, akkor kegyem által túl fogsz jutni
-a feltételekhez kötött élet minden akadályán. Azonban, ha
-nem ilyen tudatban, hanem a hamis egon keresztül cselekszel
-- nem hallván Engem -, akkor elvesztél.
+Ha tudatos leszel Rólam, akkor kegyem által túl fogsz jutni  
+a feltételekhez kötött élet minden akadályán. Azonban, ha  
+nem ilyen tudatban, hanem a hamis egon keresztül cselekszel  
+\- nem hallván Engem -, akkor elvesztél.
 
 ##### 59. vers
-Ha nem cselekszel az utasításaim szerint, és megtagadod a
-harcot, akkor tévútra térsz. Természetedből adódóan amúgy is
+Ha nem cselekszel az utasításaim szerint, és megtagadod a  
+harcot, akkor tévútra térsz. Természetedből adódóan amúgy is  
 a jövőben küzdened kell majd.
 
 ##### 60. vers
-Óh, Kaunteya, illúziód révén ugyan most megtagadod az
-utasításaim szerinti cselekvést, de saját természeted később
+Óh, Kaunteya, illúziód révén ugyan most megtagadod az  
+utasításaim szerinti cselekvést, de saját természeted később  
 csak arra kényszerít, hogy ezt a munkát végezd.
 
 ##### 61. vers
-Óh, Arjuna, a Legfelsőbb Úr mindenki szívében jelen van. Ő
-irányítja az élőlények vándorlását, akik az anyagi energia
+Óh, Arjuna, a Legfelsőbb Úr mindenki szívében jelen van. Ő  
+irányítja az élőlények vándorlását, akik az anyagi energia  
 teremtette gépezetben foglalnak helyet.
 
 ##### 62. vers
-Óh, Bharata leszármazottja, hódolj meg Előtte teljes
-egészedben! Az Ő kegye által transzcendentális békéhez fogsz
+Óh, Bharata leszármazottja, hódolj meg Előtte teljes  
+egészedben! Az Ő kegye által transzcendentális békéhez fogsz  
 jutni, és eléred a legfelsőbb, örök lakhelyet.
 
 ##### 63. vers
-Íme, kinyilatkoztattam neked a titkok titkát. Fontold meg
+Íme, kinyilatkoztattam neked a titkok titkát. Fontold meg  
 jól, s aztán tégy úgy, ahogyan jónak látod!
 
 ##### 64. vers
-Mivel kedves barátom vagy, ezért ismét feltárom előtted a
-tudás legbizalmasabb részét. Halld hát Tőlem, mert a javadat
+Mivel kedves barátom vagy, ezért ismét feltárom előtted a  
+tudás legbizalmasabb részét. Halld hát Tőlem, mert a javadat  
 szolgálja!
 
 ##### 65. vers
-Gondolj mindig Rám, légy az Én hívem! Imádj Engem, és ajánld
-tiszteleted Előttem; így kétségtelenül el fogsz jutni
-Hozzám. Ezt megígérem neked, mert nagyon kedves barátom
+Gondolj mindig Rám, légy az Én hívem! Imádj Engem, és ajánld  
+tiszteleted Előttem; így kétségtelenül el fogsz jutni  
+Hozzám. Ezt megígérem neked, mert nagyon kedves barátom  
 vagy.
 
 ##### 66. vers
-Add fel a vallás minden változatát, s hódolj meg egyedül
-Énelőttem! Én megszabadítalak minden bűnös visszahatástól,
+Add fel a vallás minden változatát, s hódolj meg egyedül  
+Énelőttem! Én megszabadítalak minden bűnös visszahatástól,  
 ne félj!
 
 ##### 67. vers
-Ezt a meghitt tudást soha nem szabad ismertetni azokkal,
-akik nem önfegyelmezettek, nem odaadóak, nem folytatnak
+Ezt a meghitt tudást soha nem szabad ismertetni azokkal,  
+akik nem önfegyelmezettek, nem odaadóak, nem folytatnak  
 odaadó szolgálatot, vagy irigyek Rám.
 
 ##### 68. vers
-Aki ezt a legnagyobb titkot a bhaktáknak elmagyarázza,
-számára az odaadó szolgálat garantált, a végén pedig
+Aki ezt a legnagyobb titkot a bhaktáknak elmagyarázza,  
+számára az odaadó szolgálat garantált, a végén pedig  
 visszatér Hozzám.
 
 ##### 69. vers
 Nincs és nem is lesz soha nála kedvesebb szolgám.
 
 ##### 70. vers
-Kijelentem, hogy aki tanulmányozza ezt a szent párbeszédet,
+Kijelentem, hogy aki tanulmányozza ezt a szent párbeszédet,  
 az az értelmével imád Engem.
 
 ##### 71. vers
-Aki pedig hittel és irigység nélkül hallja, megszabadul a
-karma összes bűnös visszahatásától, s eljut a jámborok lakta
+Aki pedig hittel és irigység nélkül hallja, megszabadul a  
+karma összes bűnös visszahatásától, s eljut a jámborok lakta  
 bolygókra.
 
 ##### 72. vers
-Óh, Partha, teljes figyelemmel hallgattad-e ezt?
-Szertefoszlott-e már illúziód és tudatlanságod, óh, bőség
+Óh, Partha, teljes figyelemmel hallgattad-e ezt?  
+Szertefoszlott-e már illúziód és tudatlanságod, óh, bőség  
 meghódítója?
 
 ##### 73. vers
-Arjuna szólt:
-Kedves Krsnám, óh, Csalhatatlan, tévhitem már eloszlott.
-Kegyed által visszanyertem emlékezetem, s most szilárd
-vagyok, kételyektől mentes, készen arra, hogy utasításaid
+Arjuna szólt:  
+Kedves Krsnám, óh, Csalhatatlan, tévhitem már eloszlott.  
+Kegyed által visszanyertem emlékezetem, s most szilárd  
+vagyok, kételyektől mentes, készen arra, hogy utasításaid  
 szerint cselekedjem.
 
 ##### 74. vers
-Sanjaya szólt:
-Így hallottam a két nagy lélek, Krsna és Arjuna párbeszédét.
-E mondanivaló olyannyira csodálatos, hogy égnek áll tőle a
+Sanjaya szólt:  
+Így hallottam a két nagy lélek, Krsna és Arjuna párbeszédét.  
+E mondanivaló olyannyira csodálatos, hogy égnek áll tőle a  
 hajam.
 
 ##### 75. vers
-Vyasa kegyéből ezt a legtitkosabb dialógust közvetlenül a
-misztikák mesterétől, Krsnától hallottam, amint személyesen
+Vyasa kegyéből ezt a legtitkosabb dialógust közvetlenül a  
+misztikák mesterétől, Krsnától hallottam, amint személyesen  
 beszélt Arjunával.
 
 ##### 76. vers
-Óh, király, amint ismételten visszaemlékezem Kesava és
-Arjuna szent párbeszédére, az öröm hullámai járnak át újra
+Óh, király, amint ismételten visszaemlékezem Kesava és  
+Arjuna szent párbeszédére, az öröm hullámai járnak át újra  
 meg újra.
 
 ##### 77. vers
-Óh, király, az Úr Krsna formájára emlékezve még nagyobb
+Óh, király, az Úr Krsna formájára emlékezve még nagyobb  
 csodálat tölt el, örömöm lankadatlan!
 
 ##### 78. vers
-Bárhol is legyen Krsna, a misztikák mestere, és Arjuna, a
-legkiválóbb íjász, ott biztos a bőség, a győzelem, a
+Bárhol is legyen Krsna, a misztikák mestere, és Arjuna, a  
+legkiválóbb íjász, ott biztos a bőség, a győzelem, a  
 rendkívüli erő és az erény. Ez az én véleményem.
 
 
-* A nyomtatott kiadásban kimaradt a "nélküliség" szó (az elektronikus változat szerkesztője) [VISSZA]
+####### Nélküliség  
+A nyomtatott kiadásban kimaradt a "nélküliség" szó (az elektronikus változat szerkesztője)
