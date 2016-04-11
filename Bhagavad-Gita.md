@@ -90,602 +90,602 @@ Krisna elmagyarázza a lemondás jelentését, és arról beszél, milyen hatás
 #### Hadiszemle a kuruksetrai csatamezőn
 
 ##### 1. vers
-Dhrtarastra király így szólt Sanjayához:
-Óh, Sanjaya, mi történt fiaimmal és Pandu fiaival, miután
+Dhrtarastra király így szólt Sanjayához:  
+Óh, Sanjaya, mi történt fiaimmal és Pandu fiaival, miután  
 harcra vágyva összegyűltek a kuruksetrai zarándokhelyen?
 
 ##### 2. vers
-Sanjaya így felelt:
-Óh, királyom, Duryodhana király megtekintette a Pandu fiai
-által felállított sereget, majd tanárához lépett, s eképpen
+Sanjaya így felelt:  
+Óh, királyom, Duryodhana király megtekintette a Pandu fiai  
+által felállított sereget, majd tanárához lépett, s eképpen  
 szólt:
 
 ##### 3. vers
-Óh, tanárom, nézd Pandu fiainak hatalmas seregét, amelyet a
+Óh, tanárom, nézd Pandu fiainak hatalmas seregét, amelyet a  
 te tanítványod, Draupada fia állított fel oly ügyesen!
 
 ##### 4. vers
-Hadseregük számos hősi íjásszal bír, akik küzdelemben
-egyenlőek Bhimával és Arjunával. Ott van Yuyudhana, Virata
+Hadseregük számos hősi íjásszal bír, akik küzdelemben  
+egyenlőek Bhimával és Arjunával. Ott van Yuyudhana, Virata  
 és Drupada is, akik szintén nagy harcosok.
 
 ##### 5. vers
-Ott van aztán Dhrstaketu, Cekitana, Kasiraja, Purujit,
+Ott van aztán Dhrstaketu, Cekitana, Kasiraja, Purujit,  
 Kuntibhoja és Saibya is, mindannyian hősök, kiváló harcosok.
 
 ##### 6. vers
-Ott a hatalmas Yudhamanyu, a rettentő erejű Uttamauja,
-valamint Subhadra és Draupadi fiai. Ezek a vitézek mind
+Ott a hatalmas Yudhamanyu, a rettentő erejű Uttamauja,  
+valamint Subhadra és Draupadi fiai. Ezek a vitézek mind  
 bámulatos szekérharcosok.
 
 ##### 7. vers
-Óh, brahmanák legjobbja, most tájékoztatásul hadd szóljak
+Óh, brahmanák legjobbja, most tájékoztatásul hadd szóljak  
 azokról, akik különösen méltóak seregeim vezényletére!
 
 ##### 8. vers
-Először is jómagad, majd a csatában mindig győzedelmes
-Bhisma, Karna, Krpa, Asvatthama, Vikarna, valamint Somadatta
+Először is jómagad, majd a csatában mindig győzedelmes  
+Bhisma, Karna, Krpa, Asvatthama, Vikarna, valamint Somadatta  
 fia, Bhurisrava.
 
 ##### 9. vers
-És még sok más hős, akik készek életüket áldozni az én
-ügyemért. Mind különféle fegyverekkel felszerelt, s
+És még sok más hős, akik készek életüket áldozni az én  
+ügyemért. Mind különféle fegyverekkel felszerelt, s  
 valamennyiük jártas a hadtudományban.
 
 ##### 10. vers
-Erőnk mérhetetlen, s Bhisma nagyatya tökéletes védelmet
-nyújt, míg a Pandavák hadereje, amit Bhima védelmez gondosan
-- korlátozott.
+Erőnk mérhetetlen, s Bhisma nagyatya tökéletes védelmet  
+nyújt, míg a Pandavák hadereje, amit Bhima védelmez gondosan  
+\- korlátozott.
 
 ##### 11. vers
-Ezért a sereg falanxában kijelölt stratégiai helyén,
-mindenkinek teljes támogatást kell nyújtania Bhisma
+Ezért a sereg falanxában kijelölt stratégiai helyén,  
+mindenkinek teljes támogatást kell nyújtania Bhisma  
 nagyatyának.
 
 ##### 12. vers
-Ekkor Bhisma, a Kuru dinasztia hatalmas és vitéz ősatyja, a
-harcosok nagyatyja hangosan kagylókürtjébe fújt. Az oroszlán
-bődülésére emlékeztető hang megörvendeztette Duryodhana
+Ekkor Bhisma, a Kuru dinasztia hatalmas és vitéz ősatyja, a  
+harcosok nagyatyja hangosan kagylókürtjébe fújt. Az oroszlán  
+bődülésére emlékeztető hang megörvendeztette Duryodhana  
 szívét.
 
 ##### 13. vers
-Ezután megharsantak hirtelen a kagylókürtök, tülkök, kürtök
-és trombiták, megperdültek a dobok, s ez együttesen szörnyű
+Ezután megharsantak hirtelen a kagylókürtök, tülkök, kürtök  
+és trombiták, megperdültek a dobok, s ez együttesen szörnyű  
 hangzavart adott.
 
 ##### 14. vers
-A másik oldalon, a fehér ménektől vont nagy harci szekéren
-állva, az Úr Krsna és Arjuna is megszólaltatták
+A másik oldalon, a fehér ménektől vont nagy harci szekéren  
+állva, az Úr Krsna és Arjuna is megszólaltatták  
 transzcendentális kagylókürtjüket.
 
 ##### 15. vers
-Az Úr Krsna (Hrsikesa) a Pancajanyát, Arjuna a Devadattát, a
-herkulesi tetteket végrehajtó és falánk Bhima pedig rettentő
+Az Úr Krsna (Hrsikesa) a Pancajanyát, Arjuna a Devadattát, a  
+herkulesi tetteket végrehajtó és falánk Bhima pedig rettentő  
 kagylókürtjét, a Paundramot fújta.
 
 ##### 16-18. vers
-Yudhisthira király, Kunti fia Anantavijayát, Nakula és
-Sahadeva pedig Sughosát és Manipuspakát szólaltatta meg.
-Kasi királya, a kiváló íjász, Sikhandi, a nagy harcos,
-Dhrstadyumna, Virata, és a legyőzhetetlen Satyaki, valamint
-Draupada, s leányának, Draupadinak fiai, Subhadra fia, az
+Yudhisthira király, Kunti fia Anantavijayát, Nakula és  
+Sahadeva pedig Sughosát és Manipuspakát szólaltatta meg.  
+Kasi királya, a kiváló íjász, Sikhandi, a nagy harcos,  
+Dhrstadyumna, Virata, és a legyőzhetetlen Satyaki, valamint  
+Draupada, s leányának, Draupadinak fiai, Subhadra fia, az  
 erős-karú, és még mások is, mind megfújták kagylókürtjüket.
 
 ##### 19. vers
-A különböző kagylókürtök vibrálása betöltötte a földet és az
-eget, s az óriási lárma megremegtette Dhrtarastra fiainak
+A különböző kagylókürtök vibrálása betöltötte a földet és az  
+eget, s az óriási lárma megremegtette Dhrtarastra fiainak  
 szívét.
 
 ##### 20. vers
-Óh, király, halld, mi történt:
-Arjuna, Pandu fia, aki a harci szekerén ült, s akinek
-Hanuman jelölte a zászlaját, felvette íját, s Dhrtarastra
-fiai felé tekintve felkészült nyilai kilövésére. Akkor, óh,
+Óh, király, halld, mi történt:  
+Arjuna, Pandu fia, aki a harci szekerén ült, s akinek  
+Hanuman jelölte a zászlaját, felvette íját, s Dhrtarastra  
+fiai felé tekintve felkészült nyilai kilövésére. Akkor, óh,  
 király, Arjuna e szavakkal fordult Hrsikesához:
 
 ##### 21-22. vers
-Arjuna szólt:
-Óh, Csalhatatlan, kérlek hajtsd harci szekeremet a két sereg
-közé, hogy láthassam, kik vannak jelen, kik vágynak a
+Arjuna szólt:  
+Óh, Csalhatatlan, kérlek hajtsd harci szekeremet a két sereg  
+közé, hogy láthassam, kik vannak jelen, kik vágynak a  
 harcra, s kikkel kell majd megküzdenem e nagy csatában!
 
 ##### 23. vers
-Hadd lássam, kik jöttek el harcolni, hogy Dhrtarastra gonosz
+Hadd lássam, kik jöttek el harcolni, hogy Dhrtarastra gonosz  
 szívű fiának örömet szerezzenek!
 
 ##### 24. vers
 Sanjaya folytatta:
-Óh, Bharata leszármazottja, Arjuna kérésére az Úr Krsna a
+Óh, Bharata leszármazottja, Arjuna kérésére az Úr Krsna a  
 két sereg közé hajtotta a pompás harci szekeret.
 
 ##### 25. vers
-Bhisma, Drona és a világ többi vezérének jelenlétében így
-szólt Hrsikesa, az Úr:
+Bhisma, Drona és a világ többi vezérének jelenlétében így  
+szólt Hrsikesa, az Úr:  
 Lásd, óh, Partha, az itt összesereglett Kurukat!
 
 ##### 26. vers
-És Arjuna látta, hogy atyái, nagyatyái, tanárai, anyai
-nagybátyjai, fivérei, fiai, unokái, barátai, apósai és
+És Arjuna látta, hogy atyái, nagyatyái, tanárai, anyai  
+nagybátyjai, fivérei, fiai, unokái, barátai, apósai és  
 jóakarói is mind jelen voltak, mindkét seregben.
 
 ##### 27. vers
-Amikor Arjuna, Kunti fia meglátta a különféle rokonok és
+Amikor Arjuna, Kunti fia meglátta a különféle rokonok és  
 barátok sokaságát, szívét részvét töltötte el, s így szólt:
 
 ##### 28. vers
-Arjuna szólt:
-Kedves Krsnám, harci vágyban égő barátaim és rokonaim
+Arjuna szólt:  
+Kedves Krsnám, harci vágyban égő barátaim és rokonaim  
 láttára tagjaim reszketnek, és kiszárad az ajkam.
 
 ##### 29. vers
-Az egész testem remeg, hajam égnek áll. Gandiva íjam
+Az egész testem remeg, hajam égnek áll. Gandiva íjam  
 kicsúszik kezemből, és bőröm tüzel.
 
 ##### 30. vers
-Nem bírok tovább itt állni! Kezdek megfeledkezni magamról,
-fejem szédül. Óh, Kesi démon végzete, én csak rosszat
+Nem bírok tovább itt állni! Kezdek megfeledkezni magamról,  
+fejem szédül. Óh, Kesi démon végzete, én csak rosszat  
 sejtek.
 
 ##### 31. vers
-Nem látom, mi jó származhat abból, ha megölöm rokonaimat e
-harcban. Kedves Krsna, nem vágyom a győzelemre, és a
+Nem látom, mi jó származhat abból, ha megölöm rokonaimat e  
+harcban. Kedves Krsna, nem vágyom a győzelemre, és a  
 királyság, a dicső gyönyör sem kell nekem.
 
 #### 32-35. vers
-Óh, Govinda, mit ér nekünk a királyság, a boldogság, vagy
-mit ér maga az élet, ha azok, akiknek kedvéért erre vágyunk,
-most itt sorakoznak előttünk? Óh, Madhusudana, még ha én
-életben is maradnék, miért kívánjam a halálukat, amikor
-tanítók, atyák, fiak, nagyapák, nagybácsik, apósok, sógorok,
-unokák és a teljes rokonság előttünk áll, készen arra, hogy
-feláldozzák az életüket és vagyonukat? Óh, Janardana, minden
-lény fenntartója, én nemhogy ezért a Földért, még a három
+Óh, Govinda, mit ér nekünk a királyság, a boldogság, vagy  
+mit ér maga az élet, ha azok, akiknek kedvéért erre vágyunk,  
+most itt sorakoznak előttünk? Óh, Madhusudana, még ha én  
+életben is maradnék, miért kívánjam a halálukat, amikor  
+tanítók, atyák, fiak, nagyapák, nagybácsik, apósok, sógorok,  
+unokák és a teljes rokonság előttünk áll, készen arra, hogy  
+feláldozzák az életüket és vagyonukat? Óh, Janardana, minden  
+lény fenntartója, én nemhogy ezért a Földért, még a három  
 világért sem vagyok hajlandó harcolni velük!
 
 ##### 36. vers
-A bűn fog hatalmába keríteni bennünket, ha legyilkoljuk a
-támadókat. Ezért nem helyes, ha megöljük barátainkat és
-Dhrtarastra fiait. Mit nyernénk ezen, óh, Madhava, szerencse
-istennőjének ura, és hogyan lehetnénk boldogok saját
+A bűn fog hatalmába keríteni bennünket, ha legyilkoljuk a  
+támadókat. Ezért nem helyes, ha megöljük barátainkat és  
+Dhrtarastra fiait. Mit nyernénk ezen, óh, Madhava, szerencse  
+istennőjének ura, és hogyan lehetnénk boldogok saját  
 rokonaink élete árán?
 
 ##### 37-38. vers
-Óh, Janardana, habár ezek az emberek a kapzsiságtól hajtva
-nem látnak semmi hibát abban, hogy barátaikkal
-veszekedjenek, vagy hogy kiirtsák saját családjukat, miért
+Óh, Janardana, habár ezek az emberek a kapzsiságtól hajtva  
+nem látnak semmi hibát abban, hogy barátaikkal  
+veszekedjenek, vagy hogy kiirtsák saját családjukat, miért  
 tennénk így mi, akik tudjuk, hogy mi a bűn?
 
 ##### 39. vers
-A dinasztia kipusztulásával az örök családi hagyományok is
-kivesznek, s az életben maradt családtagok vallásellenes
+A dinasztia kipusztulásával az örök családi hagyományok is  
+kivesznek, s az életben maradt családtagok vallásellenes  
 életet fognak élni.
 
 ##### 40. vers
-Óh, Krsna, a vallástalanság meghonosodásával elfajulnak a
-család nőtagjai, ami azután, óh, Vrsni leszármazottja, nem
+Óh, Krsna, a vallástalanság meghonosodásával elfajulnak a  
+család nőtagjai, ami azután, óh, Vrsni leszármazottja, nem  
 várt utódokat fog eredményezni.
 
 ##### 41. vers
-A nem várt nemzedék szaporodása pokoli helyzetet teremt a
-családnak és a családi hagyományokat lerombolóknak. Az ilyen
-romlott családokban nem áldoznak ételt és italt az
+A nem várt nemzedék szaporodása pokoli helyzetet teremt a  
+családnak és a családi hagyományokat lerombolóknak. Az ilyen  
+romlott családokban nem áldoznak ételt és italt az  
 ősatyáknak.
 
 ##### 42. vers
-A családi hagyományok pusztítóinak gonosz tettei véget
-vetnek a különféle közösségi tervezeteknek és a családok
+A családi hagyományok pusztítóinak gonosz tettei véget  
+vetnek a különféle közösségi tervezeteknek és a családok  
 jólétét szolgáló cselekedeteknek.
 
 ##### 43. vers
-Óh, Janardana, népek fenntartója, azt hallottam a tanítványi
-lánc által, hogy a családi hagyományokat lerombolóknak
+Óh, Janardana, népek fenntartója, azt hallottam a tanítványi  
+lánc által, hogy a családi hagyományokat lerombolóknak  
 mindig a pokolban a helyük.
 
 ##### 44. vers
-Óh, jaj, mily különös, hogy a királyi gyönyörök utáni
+Óh, jaj, mily különös, hogy a királyi gyönyörök utáni  
 vágytól hajtva súlyos bűnök elkövetésére készülünk!
 
 ##### 45. vers
-Inkább haljak meg ellenállás nélkül és fegyvertelenül a
+Inkább haljak meg ellenállás nélkül és fegyvertelenül a  
 Dhrtarastra fiak kezétől, mintsem harcoljak ellenük.
 
 ##### 46. vers
-Sanjaya mondta:
-Így szólt Arjuna a csatatéren, majd íját és nyilát
-félredobva leült harci szekerén, s szívét elborította a
+Sanjaya mondta:  
+Így szólt Arjuna a csatatéren, majd íját és nyilát  
+félredobva leült harci szekerén, s szívét elborította a  
 bánat.
 
 ### Második fejezet
 #### A Bhagavad-Gíta tartalmának kivonata
 
 ##### 1. vers
-Sanjaya mondta:
-Arjuna együttérzését, nagy bánatát és könnyező szemét látván
+Sanjaya mondta:  
+Arjuna együttérzését, nagy bánatát és könnyező szemét látván  
 így szólt Madhusudana:
 
 ##### 2. vers
-Bhagavan, a Legfelsőbb Személy szólt:
-Kedves Arjunám, hogyan fertőzhettek meg ezek a
-tisztátalanságok téged? Ez nem méltó az olyan emberhez, aki
-ismeri az élet fennköltebb értékeit. Az ilyen viselkedés nem
+Bhagavan, a Legfelsőbb Személy szólt:  
+Kedves Arjunám, hogyan fertőzhettek meg ezek a  
+tisztátalanságok téged? Ez nem méltó az olyan emberhez, aki  
+ismeri az élet fennköltebb értékeit. Az ilyen viselkedés nem  
 a felsőbb bolygókra, hanem a becstelenséghez vezet.
 
 ##### 3. vers
-Óh, Prtha fia, ne hódolj meg tehát e lealázó tehetetlenség
-előtt, mert ez nem illő hozzád! Óh, ellenség fenyítője, válj
+Óh, Prtha fia, ne hódolj meg tehát e lealázó tehetetlenség  
+előtt, mert ez nem illő hozzád! Óh, ellenség fenyítője, válj  
 meg a szív e kicsinyes gyengeségétől, és harcra fel!
 
 ##### 4. vers
-Arjuna szólt:
-Óh, Madhu végzete, hogyan támadhatok én nyilakkal olyan
-harcosokra, mint Bhisma és Drona, akik méltók arra, hogy
+Arjuna szólt:  
+Óh, Madhu végzete, hogyan támadhatok én nyilakkal olyan  
+harcosokra, mint Bhisma és Drona, akik méltók arra, hogy  
 imádjam őket?
 
 ##### 5. vers
-Jobb koldulva élni ebben a világban, mintsem élvezni az
-életet a nagy lelkek, tanáraim elpusztítása árán. Habár
-mohóak, mégis feljebbvalók ők nálam. Vér szennyezi be
+Jobb koldulva élni ebben a világban, mintsem élvezni az  
+életet a nagy lelkek, tanáraim elpusztítása árán. Habár  
+mohóak, mégis feljebbvalók ők nálam. Vér szennyezi be  
 zsákmányunkat, ha megöljük őket.
 
 ##### 6. vers
-Azt sem tudjuk, melyik a jobb: ha mi győzünk, vagy ha ők
-győznek le minket. Ha megöljük Dhrtarastra fiait - akik most
-előttünk sorakoznak a csatatéren -, tovább már mi sem
+Azt sem tudjuk, melyik a jobb: ha mi győzünk, vagy ha ők  
+győznek le minket. Ha megöljük Dhrtarastra fiait - akik most  
+előttünk sorakoznak a csatatéren -, tovább már mi sem  
 akarnánk az életet.
 
 ##### 7. vers
-Most zavarban vagyok a kötelességemet illetően, és
-gyengeségem miatt elvesztettem a lélekjelenlétemet. Ebben a
-helyzetben kérlek Téged, mondd meg világosan, mi a legjobb
-számomra! A tanítványod vagyok, egy lélek, aki meghódolt
+Most zavarban vagyok a kötelességemet illetően, és  
+gyengeségem miatt elvesztettem a lélekjelenlétemet. Ebben a  
+helyzetben kérlek Téged, mondd meg világosan, mi a legjobb  
+számomra! A tanítványod vagyok, egy lélek, aki meghódolt  
 előtted. Kérlek, oktass engem!
 
 ##### 8. vers
-Nem tudom, hogyan űzzem el ezt a bánatot, amely
-kiszikkasztja érzékeimet, s melyet legyőzni nem leszek képes
-még akkor sem, ha egy vetélytárs nélküli, a félistenek
+Nem tudom, hogyan űzzem el ezt a bánatot, amely  
+kiszikkasztja érzékeimet, s melyet legyőzni nem leszek képes  
+még akkor sem, ha egy vetélytárs nélküli, a félistenek  
 uralmához hasonló királyságot nyerek a Földön.
 
 ##### 9. vers
-Sanjaya folytatta:
-Így beszélt Arjuna, az ellenség fenyítője, majd eképp szólt
-Krsnához: "Govinda, én nem fogok harcolni." - aztán
+Sanjaya folytatta:  
+Így beszélt Arjuna, az ellenség fenyítője, majd eképp szólt  
+Krsnához: "Govinda, én nem fogok harcolni." - aztán  
 elhallgatott.
 
 ##### 10. vers
-Óh, Bharata leszármazottja, ekkor a két sereg között az
-alábbi szavakat intézte Krsna mosolyogva a bánattól sújtott
+Óh, Bharata leszármazottja, ekkor a két sereg között az  
+alábbi szavakat intézte Krsna mosolyogva a bánattól sújtott  
 Arjunának.
 
 ##### 11. vers
-A Magasztos Úr szólt:
-Művelt beszéded mellett olyasmit gyászolsz, amiért nem
-szabadna bánkódni. A bölcsek nem keseregnek sem a halott,
+A Magasztos Úr szólt:  
+Művelt beszéded mellett olyasmit gyászolsz, amiért nem  
+szabadna bánkódni. A bölcsek nem keseregnek sem a halott,  
 sem az élő felett.
 
 ##### 12. vers
-Nem volt olyan idő, amikor Én nem léteztem, s öröktől fogva
-vagy te és ezek a királyok is. A jövőben sem fog megszűnni
+Nem volt olyan idő, amikor Én nem léteztem, s öröktől fogva  
+vagy te és ezek a királyok is. A jövőben sem fog megszűnni  
 életünk, létünk végtelen.
 
 ##### 13. vers
-Amint a megtestesült lélek állandóan vándorol ebben a
-testben a gyermekkortól a serdülőkoron át az öregkorig; a
-halál után is egy másik testbe költözik. Az igazi énét
-megvalósított embert azonban nem téveszti meg az efféle
+Amint a megtestesült lélek állandóan vándorol ebben a  
+testben a gyermekkortól a serdülőkoron át az öregkorig; a  
+halál után is egy másik testbe költözik. Az igazi énét  
+megvalósított embert azonban nem téveszti meg az efféle  
 változás.
 
 ##### 14. vers
-Óh, Kunti fia, a boldogság és a boldogtalanság ideiglenes
-megjelenése, valamint kellő időben való eltűnése olyan, mint
-a tél és a nyár váltakozása. Óh, Bharata sarjadéka, ezek
-csak érzékfelfogásból erednek, s az embernek el kell tűrnie
+Óh, Kunti fia, a boldogság és a boldogtalanság ideiglenes  
+megjelenése, valamint kellő időben való eltűnése olyan, mint  
+a tél és a nyár váltakozása. Óh, Bharata sarjadéka, ezek  
+csak érzékfelfogásból erednek, s az embernek el kell tűrnie  
 őket anélkül, hogy zavarnák őt.
 
 ##### 15. vers
-Óh, emberek legjobbja (Arjuna), akit a boldogság és
-boldogtalanság nem zavar, sőt, rendíthetetlen mindkettőben,
+Óh, emberek legjobbja (Arjuna), akit a boldogság és  
+boldogtalanság nem zavar, sőt, rendíthetetlen mindkettőben,  
 az biztosan megérett a felszabadulásra.
 
 ##### 16. vers
-Az igazság látnokai arra a következtetésre jutottak, hogy a
-nemlétezőből nincsen állandóság, a létezőből pedig
-megszűnés. A látnokok erre mindkettő alapos
+Az igazság látnokai arra a következtetésre jutottak, hogy a  
+nemlétezőből nincsen állandóság, a létezőből pedig  
+megszűnés. A látnokok erre mindkettő alapos  
 tanulmányozásával jöttek rá.
 
 ##### 17. vers
-Tudd meg, hogy az, ami áthatja az egész testet,
-elpusztíthatatlan; ezért a lelket senki sem képes
+Tudd meg, hogy az, ami áthatja az egész testet,  
+elpusztíthatatlan; ezért a lelket senki sem képes  
 megsemmisíteni!
 
 ##### 18. vers
-Harcra fel, óh, Bharata leszármazottja, hiszen az
-elpusztíthatatlan, felfoghatatlan és örök élőlénynek csupán
+Harcra fel, óh, Bharata leszármazottja, hiszen az  
+elpusztíthatatlan, felfoghatatlan és örök élőlénynek csupán  
 az anyagi teste van kitéve a megsemmisülésnek!
 
 ##### 19. vers
-Aki az élőlényt gyilkosnak vagy gyilkolhatónak hiszi, az nem
-érti igazi természetét. A tudással rendelkező tudja, hogy a
+Aki az élőlényt gyilkosnak vagy gyilkolhatónak hiszi, az nem  
+érti igazi természetét. A tudással rendelkező tudja, hogy a  
 lélek nem gyilkos és nem is gyilkolható.
 
 ##### 20. vers
-A lélek nem ismer sem születést, sem halált; ha már
-létezett, többé meg nem szűnhet; nem-született, örökkévaló,
-mindig-létező, halhatatlan és ősi, s ha a testet meg is
+A lélek nem ismer sem születést, sem halált; ha már  
+létezett, többé meg nem szűnhet; nem-született, örökkévaló,  
+mindig-létező, halhatatlan és ősi, s ha a testet meg is  
 ölik, ő meg nem ölhető.
 
 ##### 21. vers
-Óh, Partha, hogyan lehetne gyilkos, vagy miképpen bírhatna
-rá bárkit is a gyilkolásra az, aki tudja, hogy a lélek
+Óh, Partha, hogyan lehetne gyilkos, vagy miképpen bírhatna  
+rá bárkit is a gyilkolásra az, aki tudja, hogy a lélek  
 elpusztíthatatlan, meg nem született, örök és változatlan?
 
 ##### 22. vers
-Miként az ember leveti elnyűtt ruháit és újakat ölt magára,
-úgy adja fel a lélek is az öreg és hasznavehetetlen
+Miként az ember leveti elnyűtt ruháit és újakat ölt magára,  
+úgy adja fel a lélek is az öreg és hasznavehetetlen  
 testeket, hogy újakat fogadjon el helyükbe.
 
 ##### 23. vers
-A lelket semmilyen fegyver sem képes feldarabolni, tűz nem
+A lelket semmilyen fegyver sem képes feldarabolni, tűz nem  
 égeti, víz nem nedvesítheti, és a szél nem száríthatja.
 
 ##### 24. vers
-Az egyéni lélek törhetetlen, oldhatatlan, és sem megégetni,
-sem felszárítani nem lehet. Ő mindent-átható, örökkévaló,
+Az egyéni lélek törhetetlen, oldhatatlan, és sem megégetni,  
+sem felszárítani nem lehet. Ő mindent-átható, örökkévaló,  
 változhatatlan, rendíthetetlen és örökké ugyanaz.
 
 ##### 25. vers
-Úgy mondják, hogy a lélek láthatatlan, felfoghatatlan és
-változatlan. Ezt tudván, nem szabadna bánkódnod a test
+Úgy mondják, hogy a lélek láthatatlan, felfoghatatlan és  
+változatlan. Ezt tudván, nem szabadna bánkódnod a test  
 miatt.
 
 ##### 26. vers
-Óh, Erős-karú, búsulásra még akkor sincs okod, ha azt
-hiszed, hogy a lélek szüntelenül megszületik és mindig
+Óh, Erős-karú, búsulásra még akkor sincs okod, ha azt  
+hiszed, hogy a lélek szüntelenül megszületik és mindig  
 meghal.
 
 ##### 27. vers
-A megszületett számára biztos a halál, a holt számára pedig
-a születés. Ezért nem szabadna keseregned kötelességed
+A megszületett számára biztos a halál, a holt számára pedig  
+a születés. Ezért nem szabadna keseregned kötelességed  
 elkerülhetetlen végrehajtása közben.
 
 ##### 28. vers
-A kezdetben minden teremtett élőlény megnyilvánulatlan,
-középső szakaszukban megnyilvánulnak, majd a
-megsemmisüléskor ismét megnyilvánulatlanok lesznek. Miért
+A kezdetben minden teremtett élőlény megnyilvánulatlan,  
+középső szakaszukban megnyilvánulnak, majd a  
+megsemmisüléskor ismét megnyilvánulatlanok lesznek. Miért  
 búsuljon hát az ember?
 
 ##### 29. vers
-A lelket az egyik csodálatosnak látja, a másik olyannak írja
-le, a harmadik azt hallja róla, hogy csodálatra méltó, míg
-mások egyáltalán nem értik, még azután sem, hogy hallottak
+A lelket az egyik csodálatosnak látja, a másik olyannak írja  
+le, a harmadik azt hallja róla, hogy csodálatra méltó, míg  
+mások egyáltalán nem értik, még azután sem, hogy hallottak  
 róla.
 
 ##### 30. vers
-Óh, Bharata leszármazottja, egy teremtményért sem kell
-bánkódnod, hiszen a testben lakozó örökkévaló, és sohasem
+Óh, Bharata leszármazottja, egy teremtményért sem kell  
+bánkódnod, hiszen a testben lakozó örökkévaló, és sohasem  
 lehet elpusztítani.
 
 ##### 31. vers
-Figyelembe véve sajátos kötelességed, mint ksatriya tudnod
-kéne, hogy számodra a vallásos elvekért való harcon kívül
+Figyelembe véve sajátos kötelességed, mint ksatriya tudnod  
+kéne, hogy számodra a vallásos elvekért való harcon kívül  
 nincs jobb elfoglaltság; tehát semmi okod a tétovázásra.
 
 ##### 32. vers
-Óh, Partha, boldogok a ksatriyák, akiknek magától adódnak
-ilyen lehetőségek a harcra, megnyitván számukra a felsőbb
+Óh, Partha, boldogok a ksatriyák, akiknek magától adódnak  
+ilyen lehetőségek a harcra, megnyitván számukra a felsőbb  
 bolygók kapuját.
 
 ##### 33. vers
-Ha nem veszel részt e vallásos háborúban, akkor
-kötelességeid elhanyagolása feltétlenül bűnt von maga után,
+Ha nem veszel részt e vallásos háborúban, akkor  
+kötelességeid elhanyagolása feltétlenül bűnt von maga után,  
 s így elveszíted harcosi hírneved.
 
 ##### 34. vers
-Becstelenséged mindig emlegetik majd az emberek, s a szégyen
+Becstelenséged mindig emlegetik majd az emberek, s a szégyen  
 a halálnál is rosszabb annak, akit egyszer tiszteltek.
 
 ##### 35. vers
-A nagy generálisok, akik nagyra becsülték híred és neved,
-azt fogják hinni, hogy félelemből hagytad el a csatateret, s
+A nagy generálisok, akik nagyra becsülték híred és neved,  
+azt fogják hinni, hogy félelemből hagytad el a csatateret, s  
 ezért gyávának fognak tekinteni.
 
 ##### 36. vers
-Ellenségeid barátságtalan szavakkal fognak illetni, s gúnyt
+Ellenségeid barátságtalan szavakkal fognak illetni, s gúnyt  
 űznek képességeidből. Számodra mi lehet ennél gyötrőbb?
 
 ##### 37. vers
-Óh, Kunti fia, vagy megölnek a csatamezőn, és eljutsz a
-felsőbb bolygókra, vagy pedig győzöl, és élvezni fogod a
+Óh, Kunti fia, vagy megölnek a csatamezőn, és eljutsz a  
+felsőbb bolygókra, vagy pedig győzöl, és élvezni fogod a  
 földi királyságot. Fel hát, és küzdj elszántan!
 
 ##### 38. vers
-Harcolj a harc kedvéért - anélkül, hogy figyelembe vennéd a
-boldogságot vagy szomorúságot, veszteséget vagy nyereséget,
-győzelmet vagy vereséget! Így cselekedvén sohasem teszed ki
+Harcolj a harc kedvéért - anélkül, hogy figyelembe vennéd a  
+boldogságot vagy szomorúságot, veszteséget vagy nyereséget,  
+győzelmet vagy vereséget! Így cselekedvén sohasem teszed ki  
 magad a bűnnek.
 
 ##### 39. vers
-Eddig a sankhya filozófia analitikus tudását magyaráztam
-neked. Halld most a yogáról szóló tudást, amivel az ember
-úgy dolgozik, hogy nem vágyik tettei gyümölcseire! Óh, Prtha
-fia, ha ilyen értelemben cselekszel, megszabadulhatsz a
+Eddig a sankhya filozófia analitikus tudását magyaráztam  
+neked. Halld most a yogáról szóló tudást, amivel az ember  
+úgy dolgozik, hogy nem vágyik tettei gyümölcseire! Óh, Prtha  
+fia, ha ilyen értelemben cselekszel, megszabadulhatsz a  
 karma bilincseitől.
 
 ##### 40. vers
-Ebben a törekvésben nincsen veszteség vagy csökkenés, s ezen
-az úton már egy kis fejlődés is megvédi az embert a félelem
+Ebben a törekvésben nincsen veszteség vagy csökkenés, s ezen  
+az úton már egy kis fejlődés is megvédi az embert a félelem  
 legveszélyesebb fajtájától.
 
 ##### 41. vers
-Akik ezt az utat járják, azok értelme határozott, és csak
-egy a céljuk. Óh, Kuruk szeretett gyermeke, a határozatlanok
+Akik ezt az utat járják, azok értelme határozott, és csak  
+egy a céljuk. Óh, Kuruk szeretett gyermeke, a határozatlanok  
 szétszórt értelműek.
 
 ##### 42-43. vers
-A csekély tudással rendelkezők nagyon vonzódnak a Vedák
-virágos szavaihoz, melyek különféle gyümölcsöző
-cselekedeteket ajánlanak a mennyei bolygók elérésére, vagy
-arra, miképpen juthat az ember előnyös születéshez,
-hatalomhoz és így tovább. Miután érzékkielégítésre és gazdag
-életre vágynak, ezért így gondolkodnak: "Nincs más ezen
+A csekély tudással rendelkezők nagyon vonzódnak a Vedák  
+virágos szavaihoz, melyek különféle gyümölcsöző  
+cselekedeteket ajánlanak a mennyei bolygók elérésére, vagy  
+arra, miképpen juthat az ember előnyös születéshez,  
+hatalomhoz és így tovább. Miután érzékkielégítésre és gazdag  
+életre vágynak, ezért így gondolkodnak: "Nincs más ezen  
 kívül."
 
 ##### 44. vers
-A Legfelsőbb Úrhoz irányuló odaadó szolgálat szilárd
-elhatározása nem születik meg azon személyek elméjében,
-akiket túlságosan vonz, és megtéveszt az érzéki élvezet, s
+A Legfelsőbb Úrhoz irányuló odaadó szolgálat szilárd  
+elhatározása nem születik meg azon személyek elméjében,  
+akiket túlságosan vonz, és megtéveszt az érzéki élvezet, s  
 az anyagi gazdagság.
 
 ##### 45. vers
-A Vedák többnyire csak az anyagi természet három
-kötőerejéről tárgyalnak. Óh, Arjuna, emelkedj föléjük, légy
-transzcendentális velük szemben! Szabadulj meg minden
-kettősségtől és aggodalomtól, mind a nyerést, mind a
+A Vedák többnyire csak az anyagi természet három  
+kötőerejéről tárgyalnak. Óh, Arjuna, emelkedj föléjük, légy  
+transzcendentális velük szemben! Szabadulj meg minden  
+kettősségtől és aggodalomtól, mind a nyerést, mind a  
 biztonságot illetően, és légy szilárd az önvalóban!
 
 ##### 46. vers
-Egy nagy víztároló minden olyan célnak megfelel, amire egy
-kis tó. Épp így válik hasznára a Vedák összes célja annak az
+Egy nagy víztároló minden olyan célnak megfelel, amire egy  
+kis tó. Épp így válik hasznára a Vedák összes célja annak az  
 embernek, aki ismeri a mögöttük rejtőző szándékot.
 
 ##### 47. vers
-Előírt kötelességed végrehajtásához jogod van, de munkád
-gyümölcséhez nincs! Sose hidd, hogy te vagy tetteid
-eredményének oka, és sohase vonzzon kötelességed
+Előírt kötelességed végrehajtásához jogod van, de munkád  
+gyümölcséhez nincs! Sose hidd, hogy te vagy tetteid  
+eredményének oka, és sohase vonzzon kötelességed  
 elhanyagolása!
 
 ##### 48. vers
-Légy rendületlen a yogában, óh, Arjuna! Végezd el
-kötelességed, és válj meg minden olyan köteléktől, amely a
-sikerhez és a kudarchoz fűződik! Az ilyen kiegyensúlyozott
+Légy rendületlen a yogában, óh, Arjuna! Végezd el  
+kötelességed, és válj meg minden olyan köteléktől, amely a  
+sikerhez és a kudarchoz fűződik! Az ilyen kiegyensúlyozott  
 elmeállapotot hívják yogának.
 
 ##### 49. vers
-Óh, Dhananjaya, szabadulj meg minden gyümölcsöző
-cselekedettől az odaadó szolgálat által, s hódolj meg
-teljesen az ilyen tudat előtt! Szánalomra méltóak ők, akik
+Óh, Dhananjaya, szabadulj meg minden gyümölcsöző  
+cselekedettől az odaadó szolgálat által, s hódolj meg  
+teljesen az ilyen tudat előtt! Szánalomra méltóak ők, akik  
 élvezni akarják a munkájuk gyümölcsét.
 
 ##### 50. vers
-Az odaadó szolgálatban élő még ebben az életben megszabadul
-a jó és a rossz tettektől egyaránt. Ezért, óh, Arjuna,
+Az odaadó szolgálatban élő még ebben az életben megszabadul  
+a jó és a rossz tettektől egyaránt. Ezért, óh, Arjuna,  
 törekedj a yogára, az összes munka művészetére!
 
 ##### 51. vers
-Az odaadó szolgálatban cselekvő bölcsek az Úrnál keresnek
-menedéket, s kiszabadítják magukat a születés és halál
-körfolyamatából azáltal, hogy lemondanak a tetteik
-gyümölcséről ebben az anyagi világban. Ily módon érhetik el
+Az odaadó szolgálatban cselekvő bölcsek az Úrnál keresnek  
+menedéket, s kiszabadítják magukat a születés és halál  
+körfolyamatából azáltal, hogy lemondanak a tetteik  
+gyümölcséről ebben az anyagi világban. Ily módon érhetik el  
 azt az állapotot, ami túl van minden szenvedésen.
 
 ##### 52. vers
-Amikor értelmed kitalál a tévhit sűrű erdejéből, közömbössé
+Amikor értelmed kitalál a tévhit sűrű erdejéből, közömbössé  
 válsz mindazok iránt, amit hallottál, s amit hallani fogsz.
 
 ##### 53. vers
-Az Isteni tudatot akkor éred el, ha elméd szilárd marad az
-önmegvalósítás transzában, és a Vedák virágos szavai nem
+Az Isteni tudatot akkor éred el, ha elméd szilárd marad az  
+önmegvalósítás transzában, és a Vedák virágos szavai nem  
 zavarják többé.
 
 ##### 54. vers
-Arjuna kérdezte:
-Milyen jelekről ismerhetem fel azt, akinek tudata ily módon
-a Transzcendensbe merült? Hogyan, milyen szavakkal beszél ő?
+Arjuna kérdezte:  
+Milyen jelekről ismerhetem fel azt, akinek tudata ily módon  
+a Transzcendensbe merült? Hogyan, milyen szavakkal beszél ő?  
 Miként ül, és hogyan megy?
 
 ##### 55. vers
-A Magasztos Úr válaszolt:
-Óh, Partha, amikor az ember feladja az elme által kitalált
-érzéki vágyak összes fajtáját, és elméje egyedül az
-önvalóban elégül ki, akkor nevezhető tiszta
+A Magasztos Úr válaszolt:  
+Óh, Partha, amikor az ember feladja az elme által kitalált  
+érzéki vágyak összes fajtáját, és elméje egyedül az  
+önvalóban elégül ki, akkor nevezhető tiszta  
 transzcendentális tudatúnak.
 
 ##### 56. vers
-Aki a háromfajta szenvedés ellenére is háborítatlan, akit a
-boldogság nem mámorít, s aki mentes a vonzódástól, a
-félelemtől és dühtől, azt rendíthetetlen elméjű bölcsnek
+Aki a háromfajta szenvedés ellenére is háborítatlan, akit a  
+boldogság nem mámorít, s aki mentes a vonzódástól, a  
+félelemtől és dühtől, azt rendíthetetlen elméjű bölcsnek  
 hívják.
 
 ##### 57. vers
-Aki mentes a vonzalomtól és gyűlölettől, s ha jó éri, nem
-ujjong, ha pedig rossz, nem panaszkodik, az szilárdan
+Aki mentes a vonzalomtól és gyűlölettől, s ha jó éri, nem  
+ujjong, ha pedig rossz, nem panaszkodik, az szilárdan  
 gyökerezik a tökéletes tudásban.
 
 ##### 58. vers
-Aki képes úgy visszavonni érzékeit az érzékszervek
-tárgyairól, mint ahogyan a teknősbéka húzza be páncéljába
+Aki képes úgy visszavonni érzékeit az érzékszervek  
+tárgyairól, mint ahogyan a teknősbéka húzza be páncéljába  
 tagjait, az igaz tudással rendelkezik.
 
 ##### 59. vers
-A megtestesült élőlény ugyan elállhat az érzéki örömöktől,
-ám az érzékek tárgyai utáni szomj megmarad. Ettől csak úgy
-válhat meg, ha előbb felsőbbrendű ízt tapasztal, és így
+A megtestesült élőlény ugyan elállhat az érzéki örömöktől,  
+ám az érzékek tárgyai utáni szomj megmarad. Ettől csak úgy  
+válhat meg, ha előbb felsőbbrendű ízt tapasztal, és így  
 tudata rendíthetetlenné válik.
 
 ##### 60. vers
-Óh, Kunti fia, az érzékek olyan erősek és indulatosak, hogy
-még a rajtuk uralkodni próbálkozó, ítélőképes ember elméjét
+Óh, Kunti fia, az érzékek olyan erősek és indulatosak, hogy  
+még a rajtuk uralkodni próbálkozó, ítélőképes ember elméjét  
 is erőnek erejével elragadják.
 
 ##### 61. vers
-Aki érzékszerveit megzabolázza, és tudatát Rám szögezi, azt
+Aki érzékszerveit megzabolázza, és tudatát Rám szögezi, azt  
 rendíthetetlen értelműnek ismerik.
 
 ##### 62. vers
-Az emberben ragaszkodás ébred az érzékek tárgyai iránt,
-miközben rajtuk elmélkedik. Az ilyen vonzódás vágyat, a vágy
+Az emberben ragaszkodás ébred az érzékek tárgyai iránt,  
+miközben rajtuk elmélkedik. Az ilyen vonzódás vágyat, a vágy  
 pedig dühöt szül.
 
 ##### 63. vers
-A dühből illúzió ered, az illúzióból emlékezetzavar. Ha
-zavart az emlékezet, elveszik az értelem, s az értelem
-elvesztésével az ember ismét visszasüllyed az anyagi lét
+A dühből illúzió ered, az illúzióból emlékezetzavar. Ha  
+zavart az emlékezet, elveszik az értelem, s az értelem  
+elvesztésével az ember ismét visszasüllyed az anyagi lét  
 mocsarába.
 
 ##### 64. vers
-De aki képes a szabadság szabályozó elveinek gyakorlása
-által uralkodni az érzékszervein, az elnyerheti az Úr teljes
-kegyét, s ily módon megszabadulhat minden ragaszkodástól és
+De aki képes a szabadság szabályozó elveinek gyakorlása  
+által uralkodni az érzékszervein, az elnyerheti az Úr teljes  
+kegyét, s ily módon megszabadulhat minden ragaszkodástól és  
 ellenszenvtől.
 
 ##### 65. vers
-Aki ily módon tartózkodik az Isteni tudatban, annak
-megszűnik az anyagi lét háromféle szenvedése, s értelme e
+Aki ily módon tartózkodik az Isteni tudatban, annak  
+megszűnik az anyagi lét háromféle szenvedése, s értelme e  
 boldog állapotban megszilárdul.
 
 ##### 66. vers
-Aki nem rendelkezik transzcendentális tudattal, annak
-értelme nem szilárd, s elméjén sem képes uralkodni. Enélkül
-pedig lehetetlen a béke, s hogyan volna boldogság béke
+Aki nem rendelkezik transzcendentális tudattal, annak  
+értelme nem szilárd, s elméjén sem képes uralkodni. Enélkül  
+pedig lehetetlen a béke, s hogyan volna boldogság béke  
 nélkül?
 
 ##### 67. vers
-Ahogyan az erős szél elsodorja a bárkát a vízen, úgy képes
-elragadni az ember értelmét még egyetlen érzék is, ha az
+Ahogyan az erős szél elsodorja a bárkát a vízen, úgy képes  
+elragadni az ember értelmét még egyetlen érzék is, ha az  
 elme arra összpontosít.
 
 ##### 68. vers
-Ezért, óh, Erős-karú, aki érzékeit azok tárgyaitól vissza
+Ezért, óh, Erős-karú, aki érzékeit azok tárgyaitól vissza  
 tudja tartani, annak értelme valóban rendíthetetlen.
 
 ##### 69. vers
-Miközben mindenki alszik, a fegyelmezett ember ébren van, de
+Miközben mindenki alszik, a fegyelmezett ember ébren van, de  
 az élőlények ébrenléte a lelkét látó bölcsnek éjszaka.
 
 ##### 70. vers
-A békét nem az éri el, aki igyekszik vágyait kielégíteni,
-hanem csak az, akit nem zavar a kívánságok szakadatlan
-özöne, melyek úgy ömlenek bele, mint folyók az állandóan
+A békét nem az éri el, aki igyekszik vágyait kielégíteni,  
+hanem csak az, akit nem zavar a kívánságok szakadatlan  
+özöne, melyek úgy ömlenek bele, mint folyók az állandóan  
 töltődő, ám mindig mozdulatlan óceánba.
 
 ##### 71. vers
-Egyedül az éri el az igazi békét, aki feladott minden
-érzékkielégítés iránti vágyat, kívánságok nélkül él, megvált
+Egyedül az éri el az igazi békét, aki feladott minden  
+érzékkielégítés iránti vágyat, kívánságok nélkül él, megvált  
 minden birtoklásérzettől, és mentes a hamis egótól.
 
 ##### 72. vers
-Ez a lelki és isteni élet útja, melyhez eljutva az ember
-megtéveszthetetlenné válik. Még ha a halál órájában lépett
+Ez a lelki és isteni élet útja, melyhez eljutva az ember  
+megtéveszthetetlenné válik. Még ha a halál órájában lépett  
 is rá, képes Isten birodalmába hatolni.
 
 ### Harmadik fejezet
