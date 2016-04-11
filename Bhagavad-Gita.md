@@ -31,7 +31,7 @@ A Bhagavad-Gítá korábbi fordítóinak célja általában az volt, hogy félre
 
 ### Tartalomjegyzék
 
-1. [Seregszemle a kuruksetrai csatamezőn](hadiszemle-a-kuruksetrai-csatamezőn)  
+1. [Seregszemle a kuruksetrai csatamezőn](#hadiszemle-a-kuruksetrai-csatamezőn)  
 Az ellenséges seregek felsorakoztak. Arjuna a hős vitéz kedves rokonait, tanítóit, barátait pillantja meg mindkét oldalon, harci vágyban égve, készen arra, hogy életüket áldozzák a csatában. Együttérzés és bánat önti el, ereje elhagyja, elméjén zavar lesz úrrá, s nem akar többé harcolni.
 
 2. A Bhagavad-Gíta tartalmának összefoglalása  
