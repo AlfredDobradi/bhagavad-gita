@@ -2893,141 +2893,141 @@ Legfelsőbbet.
 #### Az anyagi természet három kötőereje
 
 ##### 1. vers
-A Magasztos Úr szólt:
-Ismét kinyilvánítom neked ezt a legfelsőbb bölcsességet, a
-tudományok legkiválóbbját, melyet megismervén minden bölcs
+A Magasztos Úr szólt:  
+Ismét kinyilvánítom neked ezt a legfelsőbb bölcsességet, a  
+tudományok legkiválóbbját, melyet megismervén minden bölcs  
 elérte a legmagasabb tökéletességet.
 
 ##### 2. vers
-E tudásban biztos menedéket találván az ember elérheti a
-transzcendentális természetet, amely az Én természetemhez
-hasonló. Így nem születik meg az újabb teremtéskor, s az
+E tudásban biztos menedéket találván az ember elérheti a  
+transzcendentális természetet, amely az Én természetemhez  
+hasonló. Így nem születik meg az újabb teremtéskor, s az  
 anyagi világ megsemmisülése sem fogja nyugtalanítani.
 
 ##### 3. vers
-Óh, Bharata fia, a Brahmanként ismert teljes anyagállomány
-az anyaméh, amit Én termékenyítek meg, így adván lehetőséget
+Óh, Bharata fia, a Brahmanként ismert teljes anyagállomány  
+az anyaméh, amit Én termékenyítek meg, így adván lehetőséget  
 az élőlénynek a születésre.
 
 ##### 4. vers
-Óh, Kunti fia, tudni kell, hogy minden faj születés által
+Óh, Kunti fia, tudni kell, hogy minden faj születés által  
 jöhet létre, s Én vagyok a magot adó Atya.
 
 ##### 5. vers
-Óh, Erőskarú, az anyagi természet három kötőerőből áll:
-jóság, szenvedély és tudatlanság. Az élőlény alárendeltjévé
-válik e kötőerőknek, mihelyt kapcsolatba kerül az anyagi
+Óh, Erőskarú, az anyagi természet három kötőerőből áll:  
+jóság, szenvedély és tudatlanság. Az élőlény alárendeltjévé  
+válik e kötőerőknek, mihelyt kapcsolatba kerül az anyagi  
 természettel.
 
 ##### 6. vers
-Óh, Bűntelen, mivel tisztább a többinél, a jóság minősége
-ragyogó, és megszabadítja az embert a bűnös cselekedetek
-visszahatásaitól. A jóságban élők tudást fejlesztenek ki, de
+Óh, Bűntelen, mivel tisztább a többinél, a jóság minősége  
+ragyogó, és megszabadítja az embert a bűnös cselekedetek  
+visszahatásaitól. A jóságban élők tudást fejlesztenek ki, de  
 ez és a boldogság fogalma megköti őket.
 
 ##### 7. vers
-Óh, Kunti fia, tudd meg, hogy a szenvedély minősége a vég
-nélküli vágyból és kéjből születik, ezért az anyagi,
+Óh, Kunti fia, tudd meg, hogy a szenvedély minősége a vég  
+nélküli vágyból és kéjből születik, ezért az anyagi,  
 gyümölcsöző tettekhez köti az embert.
 
 ##### 8. vers
-Óh, Bharata fia, tudd meg hát, hogy a tudatlanság okozza az
-élőlények illúzióját. E kötőerőnek elmezavar, tunyaság és
-alvás az eredménye - így ejti rabul a feltételekhez kötött
+Óh, Bharata fia, tudd meg hát, hogy a tudatlanság okozza az  
+élőlények illúzióját. E kötőerőnek elmezavar, tunyaság és  
+alvás az eredménye - így ejti rabul a feltételekhez kötött  
 élőlényeket.
 
 ##### 9. vers
-A jóság kötőereje a boldogsághoz, a szenvedély a tett
-gyümölcseihez, a tudatlanság pedig az elmezavarhoz láncolja
+A jóság kötőereje a boldogsághoz, a szenvedély a tett  
+gyümölcseihez, a tudatlanság pedig az elmezavarhoz láncolja  
 az embert.
 
 ##### 10. vers
-Óh, Bharata, néha a szenvedély kerül túlsúlyba, elnyomván a
-jóság minőségét, néha a jóság győzi le a szenvedélyt, máskor
-pedig a tudatlanság uralkodik a jóság és a szenvedély
-kötőerői felett. Ily módon mindig küzdelem folyik az
+Óh, Bharata, néha a szenvedély kerül túlsúlyba, elnyomván a  
+jóság minőségét, néha a jóság győzi le a szenvedélyt, máskor  
+pedig a tudatlanság uralkodik a jóság és a szenvedély  
+kötőerői felett. Ily módon mindig küzdelem folyik az  
 elsőbbségért.
 
 ##### 11. vers
-A jóság kötőereje akkor tapasztalható, amikor a test minden
+A jóság kötőereje akkor tapasztalható, amikor a test minden  
 kapuját tudás ragyogja be.
 
 ##### 12. vers
-Óh, Bharaták vezére, ha a szenvedély minősége van
-növekvőben, akkor erős ragaszkodás, féktelen vágy, bujaság
+Óh, Bharaták vezére, ha a szenvedély minősége van  
+növekvőben, akkor erős ragaszkodás, féktelen vágy, bujaság  
 és intenzív törekvés jelentkezik.
 
 ##### 13. vers
-Óh, Kuruk öröme, a tudatlanság gyarapodásával elmezavar,
+Óh, Kuruk öröme, a tudatlanság gyarapodásával elmezavar,  
 illúzió, tétlenség és sötétség nyilvánul meg.
 
 ##### 14. vers
-Ha valaki a jóság kötőerejében hal meg, akkor a tisztább
+Ha valaki a jóság kötőerejében hal meg, akkor a tisztább  
 felsőbb bolygókra jut.
 
 ##### 15. vers
-A szenvedély minőségében távozó a munka gyümölcséért
-dolgozók között fog megszületni, aki pedig a tudatlanság
+A szenvedély minőségében távozó a munka gyümölcséért  
+dolgozók között fog megszületni, aki pedig a tudatlanság  
 kötőerejében hal meg, az az állatok világában születik újra.
 
 ##### 16. vers
-A jóság kötőerejében cselekedvén megtisztul az ember. A
-szenvedély minőségében végzett munka szenvedést, a
-tudatlanságban végrehajtott tett pedig ostobaságot
+A jóság kötőerejében cselekedvén megtisztul az ember. A  
+szenvedély minőségében végzett munka szenvedést, a  
+tudatlanságban végrehajtott tett pedig ostobaságot  
 eredményez.
 
 ##### 17. vers
-A jóság kötőerejéből igazi tudás keletkezik, a
-szenvedélyéből kapzsiság és fájdalom, a tudatlanságéból
+A jóság kötőerejéből igazi tudás keletkezik, a  
+szenvedélyéből kapzsiság és fájdalom, a tudatlanságéból  
 ostobaság, elmezavar és illúzió.
 
 ##### 18. vers
-A jóság minőségében élők fokozatosan felfelé, a felsőbb
-bolygók irányába haladnak. Akiket a szenvedély köteléke
-jellemez, azok a földi bolygókon élnek, a tudatlanság rabjai
+A jóság minőségében élők fokozatosan felfelé, a felsőbb  
+bolygók irányába haladnak. Akiket a szenvedély köteléke  
+jellemez, azok a földi bolygókon élnek, a tudatlanság rabjai  
 pedig a pokoli világokba jutnak.
 
 ##### 19. vers
-Lelki természetemet akkor értheted majd meg, amikor az
-összes tettben csak az anyagi természet kötőerőinek
-működését látod, s azt, hogy a Legfelsőbb Úr e kötőerők
+Lelki természetemet akkor értheted majd meg, amikor az  
+összes tettben csak az anyagi természet kötőerőinek  
+működését látod, s azt, hogy a Legfelsőbb Úr e kötőerők  
 fölött áll.
 
 ##### 20. vers
-Ha a megtestesült lény képes túljutni e három kötőerőn,
-akkor megszabadulhat a születéstől, haláltól, öregségtől és
-a velük járó fájdalmaktól, s élvezheti a lelki élet
+Ha a megtestesült lény képes túljutni e három kötőerőn,  
+akkor megszabadulhat a születéstől, haláltól, öregségtől és  
+a velük járó fájdalmaktól, s élvezheti a lelki élet  
 nektárját még ebben az életben.
 
 ##### 21. vers
-Arjuna kérdezett:
-Óh, kedves Uram, milyen jelekről ismerhetjük fel azt, aki a
-három kötőerő felett áll? Miképpen viselkedik az ilyen
+Arjuna kérdezett:  
+Óh, kedves Uram, milyen jelekről ismerhetjük fel azt, aki a  
+három kötőerő felett áll? Miképpen viselkedik az ilyen  
 személy, s hogyan jut túl az anyagi természet kötőerőin?
 
 ##### 22-25. vers
-A Magasztos Úr így válaszolt:
-Óh, Pandava, az olyan emberről mondják azt, hogy túljutott
-az anyagi természet kötőerőinek hatáskörén, aki nem gyűlöli
-a jelenlevő ragyogást, ragaszkodást, s illúziót, de nem is
-vágyik utánuk, ha nincsenek jelen; semleges, mert túl van a
-kötőerőkön; mindig rendíthetetlen marad, mert tudja, hogy
-csupán a kötőerők működnek; ugyanúgy tekint az örömre és a
-fájdalomra; egyenlőnek látja a földgöröngyöt, a kődarabot és
-az aranyrögöt; bölcsen egynek véli a dicséretet és a
-bírálatot; változatlan a becsben és a becstelenségben
-egyaránt; a barátot is és az ellenséget is ugyanúgy kezeli,
+A Magasztos Úr így válaszolt:  
+Óh, Pandava, az olyan emberről mondják azt, hogy túljutott  
+az anyagi természet kötőerőinek hatáskörén, aki nem gyűlöli  
+a jelenlevő ragyogást, ragaszkodást, s illúziót, de nem is  
+vágyik utánuk, ha nincsenek jelen; semleges, mert túl van a  
+kötőerőkön; mindig rendíthetetlen marad, mert tudja, hogy  
+csupán a kötőerők működnek; ugyanúgy tekint az örömre és a  
+fájdalomra; egyenlőnek látja a földgöröngyöt, a kődarabot és  
+az aranyrögöt; bölcsen egynek véli a dicséretet és a  
+bírálatot; változatlan a becsben és a becstelenségben  
+egyaránt; a barátot is és az ellenséget is ugyanúgy kezeli,  
 és felhagyott minden gyümölcsöző próbálkozással.
 
 ##### 26. vers
-Aki teljesen az odaadó szolgálattal foglalja le magát, és
-nem esik vissza semmilyen körülmények között, az egyszeriben
-túllép az anyagi természet kötőerőin, s így elér a Brahman
+Aki teljesen az odaadó szolgálattal foglalja le magát, és  
+nem esik vissza semmilyen körülmények között, az egyszeriben  
+túllép az anyagi természet kötőerőin, s így elér a Brahman  
 síkjára.
 
 ##### 27. vers
-Én vagyok a hajléka a személytelen Brahmannak, amely
-halhatatlan, elpusztíthatatlan, örök, és aminek a végső
+Én vagyok a hajléka a személytelen Brahmannak, amely  
+halhatatlan, elpusztíthatatlan, örök, és aminek a végső  
 boldogság az igazi természete.
 
 
