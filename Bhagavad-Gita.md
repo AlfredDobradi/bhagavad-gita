@@ -2298,309 +2298,309 @@ univerzumot.
 #### Az univerzális forma
 
 ##### 1. vers
-Arjuna szólott:
-Hallottam tanításod a titkos lelki témákról, melyeket
-irántam való kedvességből mondtál el nekem. Illúzióm most
+Arjuna szólott:  
+Hallottam tanításod a titkos lelki témákról, melyeket  
+irántam való kedvességből mondtál el nekem. Illúzióm most  
 szertefoszlott.
 
 ##### 2. vers
-Óh, Lótuszvirág-szemű, részletesen hallottam Tőled minden
-élőlény megjelenéséről és eltűnéséről, valamint
+Óh, Lótuszvirág-szemű, részletesen hallottam Tőled minden  
+élőlény megjelenéséről és eltűnéséről, valamint  
 kimeríthetetlen dicsőségedről.
 
 ##### 3. vers
-Óh, minden személyiség legnagyobbja, óh, legfelsőbb forma,
-bár látom magam előtt valódi alakodat, mégis szeretném
-tudni, miképpen hatoltál ebbe a kozmikus megnyilvánulásba.
+Óh, minden személyiség legnagyobbja, óh, legfelsőbb forma,  
+bár látom magam előtt valódi alakodat, mégis szeretném  
+tudni, miképpen hatoltál ebbe a kozmikus megnyilvánulásba.  
 Szeretném megpillantani azon formádat!
 
 ##### 4. vers
-Óh, Uram, misztikus képességek mestere, ha úgy gondolod,
-hogy képes vagyok meglátni univerzális formádat, akkor
+Óh, Uram, misztikus képességek mestere, ha úgy gondolod,  
+hogy képes vagyok meglátni univerzális formádat, akkor  
 kérlek, mutasd meg nekem azt az Éned!
 
 ##### 5. vers
-Szólt a Magasztos Úr:
-Kedves Arjunám, Prtha fia, lásd hát fenségem, a sok
-százezernyi, változó isteni formát, melyek sokszínűek, mint
+Szólt a Magasztos Úr:  
+Kedves Arjunám, Prtha fia, lásd hát fenségem, a sok  
+százezernyi, változó isteni formát, melyek sokszínűek, mint  
 a tenger.
 
 ##### 6. vers
-Óh, Bharaták legjobbja, lásd hát az Adityák és Rudrák
-különféle megnyilvánulásait, a Marutokat, a két Asvint, és a
-többi sok csodát, amit még senki sem látott, vagy hallott
+Óh, Bharaták legjobbja, lásd hát az Adityák és Rudrák  
+különféle megnyilvánulásait, a Marutokat, a két Asvint, és a  
+többi sok csodát, amit még senki sem látott, vagy hallott  
 ezelőtt!
 
 ##### 7. vers
-Óh, Álom Legyőzője, bármit is kívánj megtekinteni, azon
-nyomban megláthatod e testben. Ez az univerzális forma képes
-megmutatni neked mindazt, amit most kívánsz, s amit majd a
+Óh, Álom Legyőzője, bármit is kívánj megtekinteni, azon  
+nyomban megláthatod e testben. Ez az univerzális forma képes  
+megmutatni neked mindazt, amit most kívánsz, s amit majd a  
 jövőben akarsz. Ebben a formában minden teljes.
 
 ##### 8. vers
-Isteni szemet adok neked, amellyel megpillanthatod misztikus
+Isteni szemet adok neked, amellyel megpillanthatod misztikus  
 fenségemet; anélkül nem láthatsz meg Engem.
 
 ##### 9. vers
-Sanjaya szólt:
-Óh, király, így szólt a Legfelsőbb, a misztikus képességek
-Ura, az Istenség Legfelsőbb Személyisége, majd
+Sanjaya szólt:  
+Óh, király, így szólt a Legfelsőbb, a misztikus képességek  
+Ura, az Istenség Legfelsőbb Személyisége, majd  
 megnyilvánította Arjunának univerzális formáját.
 
 ##### 10-11. vers
-Arjuna végtelen sok szájat és szemet látott. A kép
-csodálatos volt. A formát isteni, vakító ékességek,
-felöltött fegyverek, és temérdek, rendezett öltözék
-díszítette. Teste illatos kenőcsökkel bekenve, gyönyörű
-virágfüzérekkel ékesítve. Az egész elragadó, mindenhová
+Arjuna végtelen sok szájat és szemet látott. A kép  
+csodálatos volt. A formát isteni, vakító ékességek,  
+felöltött fegyverek, és temérdek, rendezett öltözék  
+díszítette. Teste illatos kenőcsökkel bekenve, gyönyörű  
+virágfüzérekkel ékesítve. Az egész elragadó, mindenhová  
 kiterjedő és végtelen volt.
 
 ##### 12. vers
-Ha sok ezer Nap egyszerre lángolna fel az égen, az
-közelítené csak meg a Legfelsőbb Személy univerzális
+Ha sok ezer Nap egyszerre lángolna fel az égen, az  
+közelítené csak meg a Legfelsőbb Személy univerzális  
 formájának ragyogását.
 
 ##### 13. vers
-És akkor Arjuna megláthatta a világegyetem sok ezer részre
-osztott, végtelen kiterjedéseit, mind egy helyen, az Úr
+És akkor Arjuna megláthatta a világegyetem sok ezer részre  
+osztott, végtelen kiterjedéseit, mind egy helyen, az Úr  
 univerzális formájában.
 
 ##### 14. vers
-A zavart és megdöbbent Arjuna a csodálattól lenyűgözve,
-égnek álló hajjal, összetett kézzel tiszteletét kezdte
+A zavart és megdöbbent Arjuna a csodálattól lenyűgözve,  
+égnek álló hajjal, összetett kézzel tiszteletét kezdte  
 ajánlani a Legfelsőbb Úrnak.
 
 ##### 15. vers
-Arjuna szólt:
-Kedves Uram, testedben látom egybegyűlve az összes félistent
-és a különféle élőlényeket. Látom Brahmát, amint a
-lótuszvirágon ül, látom Sivát, valamint sok bölcset és
+Arjuna szólt:  
+Kedves Uram, testedben látom egybegyűlve az összes félistent  
+és a különféle élőlényeket. Látom Brahmát, amint a  
+lótuszvirágon ül, látom Sivát, valamint sok bölcset és  
 isteni kígyót.
 
 ##### 16. vers
-Óh, kozmosz Ura, univerzális testedben minden oldalról sok-
-sok vég nélkül kiterjedő formát, gyomrot, szájat és szemet
+Óh, kozmosz Ura, univerzális testedben minden oldalról sok-  
+sok vég nélkül kiterjedő formát, gyomrot, szájat és szemet  
 látok. Mindezeknek nincs sem kezdete, sem vége, sem közepe.
 
 ##### 17. vers
-Nehéz a különféle koronákkal, buzogányokkal és csakrákkal
-ékesített formádat nézni, mert vakítóan ragyog, mérhetetlen
+Nehéz a különféle koronákkal, buzogányokkal és csakrákkal  
+ékesített formádat nézni, mert vakítóan ragyog, mérhetetlen  
 és izzó, mint a Nap.
 
 ##### 18. vers
-Te vagy a legvégső cél, az univerzumokban a legkiválóbb,
-kimeríthetetlen, s a legősibb. Te vagy a múlhatatlan vallás
+Te vagy a legvégső cél, az univerzumokban a legkiválóbb,  
+kimeríthetetlen, s a legősibb. Te vagy a múlhatatlan vallás  
 fenntartója, az örökkévaló Istenség Személyisége.
 
 ##### 19. vers
-Te vagy a kezdet, a közép és a vég nélküli forrás. Számtalan
-karod van, a Hold és a Nap nagy, végtelen számú szemeid közé
-tartozik. Látom, a szádból izzó láng lövell, s ragyogásod
+Te vagy a kezdet, a közép és a vég nélküli forrás. Számtalan  
+karod van, a Hold és a Nap nagy, végtelen számú szemeid közé  
+tartozik. Látom, a szádból izzó láng lövell, s ragyogásod  
 által melegíted ezt az egész univerzumot.
 
 ##### 20. vers
-Habár egy vagy, kiterjedtél az égben, a bolygókban, s a
-köztük levő űrben egyaránt. Óh, Nagy Lélek, félelmetes
-formádat szemlélve látom, hogy mind a három bolygórendszer
+Habár egy vagy, kiterjedtél az égben, a bolygókban, s a  
+köztük levő űrben egyaránt. Óh, Nagy Lélek, félelmetes  
+formádat szemlélve látom, hogy mind a három bolygórendszer  
 lakosai megzavarodtak.
 
 ##### 21. vers
-Az összes félisten meghódol Előtted, s Beléd hatolnak.
-Nagyon félnek, s összetett kézzel védikus himnuszokat
+Az összes félisten meghódol Előtted, s Beléd hatolnak.  
+Nagyon félnek, s összetett kézzel védikus himnuszokat  
 zengenek.
 
 ##### 22. vers
-Csodálkozva szemlélnek Téged az Úr Siva különféle
-megnyilvánulásai, valamint az Adityák, a Vasuk, a Sadhyák, a
-Visvadevák, a két Asvin, a Marutok, az ősatyák, a
-Gandharvák, a Yaksák, az Asurák és a tökéletessé vált
+Csodálkozva szemlélnek Téged az Úr Siva különféle  
+megnyilvánulásai, valamint az Adityák, a Vasuk, a Sadhyák, a  
+Visvadevák, a két Asvin, a Marutok, az ősatyák, a  
+Gandharvák, a Yaksák, az Asurák és a tökéletessé vált  
 félistenek.
 
 ##### 23. vers
-Óh, Hatalmas-karú, bolygóján az összes félisten zavartan
-szemléli számtalan arcod, szemed, karod, gyomrod, lábad és
+Óh, Hatalmas-karú, bolygóján az összes félisten zavartan  
+szemléli számtalan arcod, szemed, karod, gyomrod, lábad és  
 rettenetes fogaid. Én is megdöbbentem, akárcsak ők.
 
 ##### 24. vers
-Óh, mindent-átható Visnu! Nem vagyok képes tovább
-fenntartani lelki egyensúlyomat. Félek eget betöltő, ragyogó
+Óh, mindent-átható Visnu! Nem vagyok képes tovább  
+fenntartani lelki egyensúlyomat. Félek eget betöltő, ragyogó  
 színeid, valamint izzó szemeid és szájaid láttán.
 
 ##### 25. vers
-Óh, urak Ura, világok menedéke, kérlek, légy kegyes hozzám!
-Lángoló halotti arcaid és félelmetes fogaid látványa elűzte
+Óh, urak Ura, világok menedéke, kérlek, légy kegyes hozzám!  
+Lángoló halotti arcaid és félelmetes fogaid látványa elűzte  
 lelki békémet, teljesen megzavarodtam.
 
 ##### 26-27. vers
-Dhrtarastra összes fia, és a velük szövetséges királyok,
-Bhisma, Drona és Karna, valamint kiváló katonáink egytől-
-egyig a szájadba özönlenek. Borzadva látom, miként
-némelyikük koponyája szétmorzsolódik félelmetes, iszonyú
+Dhrtarastra összes fia, és a velük szövetséges királyok,  
+Bhisma, Drona és Karna, valamint kiváló katonáink egytől-  
+egyig a szájadba özönlenek. Borzadva látom, miként  
+némelyikük koponyája szétmorzsolódik félelmetes, iszonyú  
 fogaid között.
 
 ##### 28. vers
-Mint folyók az óceánba, úgy ömlenek e harcosok lángoló
+Mint folyók az óceánba, úgy ömlenek e harcosok lángoló  
 szájaidba, hogy ott megsemmisüljenek.
 
 ##### 29. vers
-Látom az embereket teljes sebességgel torkodba rohanni,
+Látom az embereket teljes sebességgel torkodba rohanni,  
 miként az éjjeli lepkék is fejvesztetten a tűzbe szállanak.
 
 ##### 30. vers
-Óh, Visnu, lángoló nyelveiddel minden irányban elpusztítasz
-mindenkit, s felmérhetetlen sugaraid beragyogják az
+Óh, Visnu, lángoló nyelveiddel minden irányban elpusztítasz  
+mindenkit, s felmérhetetlen sugaraid beragyogják az  
 univerzumot. Perzselvén a világot, Te jelen vagy mindenütt.
 
 ##### 31. vers
-Óh, urak Ura, ily félelmetes forma, kérlek, áruld el nekem,
-ki vagy Te! Hódolatomat ajánlom Neked, s esedezem, légy
-kegyes hozzám! Küldetésedet nem ismerem, de vágyom arra,
+Óh, urak Ura, ily félelmetes forma, kérlek, áruld el nekem,  
+ki vagy Te! Hódolatomat ajánlom Neked, s esedezem, légy  
+kegyes hozzám! Küldetésedet nem ismerem, de vágyom arra,  
 hogy halljak róla!
 
 ##### 32. vers
-Szólt a Magasztos Úr:
-Idő vagyok, világok pusztítója. Azért jöttem, hogy az összes
-embert foglalkoztassam. Te és a többi Pandava kivételével
+Szólt a Magasztos Úr:  
+Idő vagyok, világok pusztítója. Azért jöttem, hogy az összes  
+embert foglalkoztassam. Te és a többi Pandava kivételével  
 mindkét fél harcosai meg fognak semmisülni.
 
 ##### 33. vers
-Kelj fel hát, készülj a harcra! Óh, Savyasacin, virágzó
-királyságot fogsz élvezni ellenségeid legyőzése után. Én már
+Kelj fel hát, készülj a harcra! Óh, Savyasacin, virágzó  
+királyságot fogsz élvezni ellenségeid legyőzése után. Én már  
 halálra ítéltem őket, te csupán eszköz lehetsz a harcban.
 
 ##### 34. vers
-A hatalmas vitézek, mint például Drona, Bhisma, Jayadratha
-és Karna, már mind elpusztultak. Harcolj csak, s ne aggódj,
+A hatalmas vitézek, mint például Drona, Bhisma, Jayadratha  
+és Karna, már mind elpusztultak. Harcolj csak, s ne aggódj,  
 győzedelmeskedni fogsz ellenségeid felett!
 
 ##### 35. vers
-Így szólt Sanjaya Dhrtarastrához:
-Óh, király, Arjuna reszketett, midőn e szavakat hallotta az
-Istenség Legfelsőbb Személyiségétől, majd összetette kezét,
+Így szólt Sanjaya Dhrtarastrához:  
+Óh, király, Arjuna reszketett, midőn e szavakat hallotta az  
+Istenség Legfelsőbb Személyiségétől, majd összetette kezét,  
 s félelemmel telve, elcsukló hangon eképpen szólott:
 
 ##### 36. vers
-Óh, Hrsikesa, Neved hallatára örömtelivé válik a világ, s
-így mindenki ragaszkodni fog Hozzád. A tökéletessé vált
-lények tiszteletteljes hódolatukat ajánlják, míg a démonok
+Óh, Hrsikesa, Neved hallatára örömtelivé válik a világ, s  
+így mindenki ragaszkodni fog Hozzád. A tökéletessé vált  
+lények tiszteletteljes hódolatukat ajánlják, míg a démonok  
 szerteszét menekülnek. Mindez így van rendjén.
 
 ##### 37. vers
-Óh, Nagylelkű, óh, Határtalan, miért ne ajánlják hát
-hódolatukat Neked, ki még Brahmánál is felsőbbrendű vagy? Te
-vagy az eredeti mester, óh, univerzum menedéke,
-legyőzhetetlen forrás, minden ok oka, aki transzcendentális
+Óh, Nagylelkű, óh, Határtalan, miért ne ajánlják hát  
+hódolatukat Neked, ki még Brahmánál is felsőbbrendű vagy? Te  
+vagy az eredeti mester, óh, univerzum menedéke,  
+legyőzhetetlen forrás, minden ok oka, aki transzcendentális  
 ehhez az anyagi megnyilvánuláshoz képest.
 
 ##### 38. vers
-Te vagy az eredeti Személy, a Legfelsőbb Isten, a
-megnyilvánult kozmikus világ egyetlen oltalma. Tudsz
-mindent, s Te vagy mindaz, amit meg kell ismerni. Te felette
-állsz az anyagi kötőerőknek. Óh, végnélküli forma, Te hatod
+Te vagy az eredeti Személy, a Legfelsőbb Isten, a  
+megnyilvánult kozmikus világ egyetlen oltalma. Tudsz  
+mindent, s Te vagy mindaz, amit meg kell ismerni. Te felette  
+állsz az anyagi kötőerőknek. Óh, végnélküli forma, Te hatod  
 át az egész kozmikus megnyilvánulást.
 
 ##### 39. vers
-Te vagy a levegő, a tűz, a víz, és Te vagy a Hold! Te vagy a
-Legfelsőbb Irányító, Te vagy a Brahma, a nagyatya. Ezért
-tiszteletteljes hódolatomat ajánlom Neked újra meg újra -
+Te vagy a levegő, a tűz, a víz, és Te vagy a Hold! Te vagy a  
+Legfelsőbb Irányító, Te vagy a Brahma, a nagyatya. Ezért  
+tiszteletteljes hódolatomat ajánlom Neked újra meg újra -  
 ezerszeresen.
 
 ##### 40. vers
-Hódolatom elölről, hátulról és minden oldalról! Óh, kötetlen
-erő, Te vagy a korlátlan hatalom mestere! Mindent-áthatóként
+Hódolatom elölről, hátulról és minden oldalról! Óh, kötetlen  
+erő, Te vagy a korlátlan hatalom mestere! Mindent-áthatóként  
 Te vagy a minden!
 
 ##### 41-42. vers
-A múltban nem tudtam dicsőségedről, ezért csupán így
-szólítottalak: "Óh, Krsnám; óh, Yadavám; kedves barátom!"
-Kérlek, nézd el, bármit is tettem bolondságomban vagy
-szeretetemben! Tréfálkozván, sokszor voltam tiszteletlen
-Veled szemben, miközben együtt pihentünk, egy ágyban
-feküdtünk, vagy együtt ettünk; néha kettesben, néha pedig a
+A múltban nem tudtam dicsőségedről, ezért csupán így  
+szólítottalak: "Óh, Krsnám; óh, Yadavám; kedves barátom!"  
+Kérlek, nézd el, bármit is tettem bolondságomban vagy  
+szeretetemben! Tréfálkozván, sokszor voltam tiszteletlen  
+Veled szemben, miközben együtt pihentünk, egy ágyban  
+feküdtünk, vagy együtt ettünk; néha kettesben, néha pedig a  
 többi barátunk előtt. Kérlek, bocsásd meg minden vétkem!
 
 ##### 43. vers
-Te vagy az atyja a teljes kozmikus megnyilvánulásnak, Te
-vagy az imádandó lelki tanítómester. Senki sem egyenrangú
-Veled, és senki sem válhat eggyé Veled. Mérhetetlen vagy a
+Te vagy az atyja a teljes kozmikus megnyilvánulásnak, Te  
+vagy az imádandó lelki tanítómester. Senki sem egyenrangú  
+Veled, és senki sem válhat eggyé Veled. Mérhetetlen vagy a  
 három világon belül.
 
 ##### 44. vers
-Te vagy a Legfelsőbb Úr, aki minden élőlény számára
-imádandó. Ezért hát leborulok, hogy a tiszteletemet
-ajánljam, és kegyedért esedezem. Kérlek, nézd el, bármilyen
-hibát is követtem el Veled szemben, s légy türelmes hozzám,
+Te vagy a Legfelsőbb Úr, aki minden élőlény számára  
+imádandó. Ezért hát leborulok, hogy a tiszteletemet  
+ajánljam, és kegyedért esedezem. Kérlek, nézd el, bármilyen  
+hibát is követtem el Veled szemben, s légy türelmes hozzám,  
 mint apa a fiához, barát a pajtásához, szerető a kedveséhez!
 
 ##### 45. vers
-Boldog vagyok az eddig sohasem látott univerzális forma
-megtekintése után, de ugyanakkor félelem gyötri elmémet.
-Kérlek hát, részesíts kegyedben, s fedd fel ismét eredeti
-formádat, mint az Istenség Személyisége, óh, urak Ura,
+Boldog vagyok az eddig sohasem látott univerzális forma  
+megtekintése után, de ugyanakkor félelem gyötri elmémet.  
+Kérlek hát, részesíts kegyedben, s fedd fel ismét eredeti  
+formádat, mint az Istenség Személyisége, óh, urak Ura,  
 univerzum hajléka!
 
 ##### 46. vers
-Óh, ezerkarú, óh, univerzális Úr, szeretnélek négykarú
-formádban látni, ékes sisakkal fejeden, kezeidben buzogányt,
-csakrát, kagylókürtöt és lótuszvirágot tartván. Nagyon
+Óh, ezerkarú, óh, univerzális Úr, szeretnélek négykarú  
+formádban látni, ékes sisakkal fejeden, kezeidben buzogányt,  
+csakrát, kagylókürtöt és lótuszvirágot tartván. Nagyon  
 vágyódom, hogy ebben a formádban lássalak!
 
 ##### 47. vers
-A Magasztos Úr szólt:
-Kedves Arjunám, boldogan mutattam meg belső energiám által
-az univerzális formát. Előtted még senki sem látta ezt, a
+A Magasztos Úr szólt:  
+Kedves Arjunám, boldogan mutattam meg belső energiám által  
+az univerzális formát. Előtted még senki sem látta ezt, a  
 végtelent és vakítóan ragyogót.
 
 ##### 48. vers
-Óh, Kuru harcosok legjobbja, előtted senki sem láthatta
-univerzális formámat, mert azt nem lehet megpillantani a
-Vedák tanulmányozásával, áldozatok végrehajtásával vagy
+Óh, Kuru harcosok legjobbja, előtted senki sem láthatta  
+univerzális formámat, mert azt nem lehet megpillantani a  
+Vedák tanulmányozásával, áldozatok végrehajtásával vagy  
 hasonló cselekedetekkel. Egyedül te láthattad meg azt.
 
 ##### 49. vers
-Az elméd nyugtalanná vált szörnyű arculatom láttán. Most
-legyen hát vége ennek! Kedves bhaktám, szabadulj meg minden
-aggodalomtól, hogy megbékélt elmével megpillanthasd a kívánt
+Az elméd nyugtalanná vált szörnyű arculatom láttán. Most  
+legyen hát vége ennek! Kedves bhaktám, szabadulj meg minden  
+aggodalomtól, hogy megbékélt elmével megpillanthasd a kívánt  
 formát.
 
 ##### 50. vers
-Sanjaya e szavakkal fordult Dhrtarastrához:
-Ezeket mondta Krsna, az Istenség Legfelsőbb Személyisége
-Arjunának, majd nagylelkűen felfedte előbb a négykarú, végül
-a valódi, gyönyörűséges kétkarú formáját, ily módon
+Sanjaya e szavakkal fordult Dhrtarastrához:  
+Ezeket mondta Krsna, az Istenség Legfelsőbb Személyisége  
+Arjunának, majd nagylelkűen felfedte előbb a négykarú, végül  
+a valódi, gyönyörűséges kétkarú formáját, ily módon  
 lelkesítve a megrettent Arjunát.
 
 ##### 51. vers
-Amikor Arjuna megpillantotta Krsnát eredeti formájában, így
-szólt:
-Látván emberhez hasonló, gyönyörű formád, elmém
+Amikor Arjuna megpillantotta Krsnát eredeti formájában, így  
+szólt:  
+Látván emberhez hasonló, gyönyörű formád, elmém  
 megnyugodott, s visszatért eredeti lelkiállapotom.
 
 ##### 52. vers
-Szólt a Magasztos Úr:
-Kedves Arjunám, nagyon nehéz megpillantani ezt a formám,
-amit most látsz. Még a félistenek is állandóan lesik az
-alkalmat, hogy megláthassák ezt a számukra annyira kedves
+Szólt a Magasztos Úr:  
+Kedves Arjunám, nagyon nehéz megpillantani ezt a formám,  
+amit most látsz. Még a félistenek is állandóan lesik az  
+alkalmat, hogy megláthassák ezt a számukra annyira kedves  
 formát.
 
 ##### 53. vers
-Amit most transzcendentális szemeddel felfogsz, azt nem
-lehet meglátni vagy megérteni csupán a Vedák
-tanulmányozásával, sem komoly vezeklések végzésével, sem
-adományozással, sem rituális imádattal. Az efféle folyamatok
+Amit most transzcendentális szemeddel felfogsz, azt nem  
+lehet meglátni vagy megérteni csupán a Vedák  
+tanulmányozásával, sem komoly vezeklések végzésével, sem  
+adományozással, sem rituális imádattal. Az efféle folyamatok  
 által lehetetlen eredeti formámban megpillantani Engem.
 
 ##### 54. vers
-Óh, kedves Arjunám, ellenség fenyítője, csakis osztatlan
-odaadó szolgálat által lehet Engem igazán megérteni. Egyedül
-így lehet közvetlenül meglátni Engem, úgy, ahogyan előtted
-állok. Ily módon lehet csak behatolni a Rólam szóló tudás
+Óh, kedves Arjunám, ellenség fenyítője, csakis osztatlan  
+odaadó szolgálat által lehet Engem igazán megérteni. Egyedül  
+így lehet közvetlenül meglátni Engem, úgy, ahogyan előtted  
+állok. Ily módon lehet csak behatolni a Rólam szóló tudás  
 misztériumába.
 
 ##### 55. vers
-Kedves Pandava, aki tiszta, odaadó szolgálatomban él,
-mentesen előző tetteinek szennyétől és az elmebeli
-spekulációtól, és barátja minden élőlénynek - az biztosan
+Kedves Pandava, aki tiszta, odaadó szolgálatomban él,  
+mentesen előző tetteinek szennyétől és az elmebeli  
+spekulációtól, és barátja minden élőlénynek - az biztosan  
 eljut Hozzám.
 
 
