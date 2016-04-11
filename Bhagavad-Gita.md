@@ -64,7 +64,7 @@ Az anyagi és a lelki világban minden csodálatos megnyilvánulás, erő nagys�
 11. [Az univerzális forma](#az-univerzális-forma)
 Az Úr Krisna isteni szemekkel ajándékozta meg Arjunát, s megmutatta neki látványos, végtelen formáját, a kozmikus univerzumot. Ezzel végleg bizonyosságot tesz isteni mivoltáról. Elmondja, hogy szépséges emberi formája az Istenség eredeti formája, melyet csakis az odaadó szolgálaton keresztül lehet megpillantani.
 
-12. [Odaadó szolgálat](#odaadó-szolgálat)
+12. [Odaadó szolgálat](#az-odaadó-szolgálat)
 A bhakti-yoga, az Úr Krisna tiszta odaadó szolgálata a legmagasabb rendű és legmegfelelőbb eszköz a Krisna iránti tiszta szeretet eléréséhez, ami a lelki élet végső célja. Akik ezt a magasztos utat járják, isteni természetre tesznek szert.
 
 13. [A természet, az élvező és a tudat](#a-prakrti-a-purusa-és-a-tudat)
